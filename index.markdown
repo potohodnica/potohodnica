@@ -1,10 +1,11 @@
 ---
-layout: default
+layout: home
 title:
 order: 0
 ---
- dsfdsfdsf
- ### Kratke zgodbe
+Jan piše, Živa riše. Skupaj ustvarjava.
+ 
+## Kratke zgodbe
  
 [Materino znamenje]({% post_url 2019-11-17-materino-znamenje %}) <br/>
 [Prvi zmenek]({% post_url 2019-11-18-prvi-zmenek %}) <br/>
