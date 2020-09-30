@@ -2,7 +2,6 @@
 layout: post
 title:  "Kaj pa, če ... It All Goes Too Far?"
 date:   2019-07-30 18:05:16 +0200
-categories: kratkeZgodbe
 ---
 “Yeah, I’m not buying it!” said the kid stubbornly. He was about seven, maybe eight years old and looked suspiciously at his grandpa. 
 

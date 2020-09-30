@@ -2,7 +2,6 @@
 layout: post
 title:  "Policaj beži pred plazom"
 date:   2019-06-20
-categories: testtest
 ---
 “Kako za hudiča sem se znašla v tej situaciji?” se je vprašala Martina, ko je bežala pred ogromnim plazom. Ta gmota ni grozila zgolj njej, temveč naravi sami, svetovnemu miru in nenazadnje nedolžni mulariji.
 
