@@ -26,7 +26,7 @@ Jasmina je slišala, kako nekdo odklepa vrata. Zaslepila jo je svetloba, vendar 
 
 "Ne stari, mtki sem vzel gate ... itak, da sem jo tako dobil."
 
-![prvi-zmenek.png](/assets/images/prvi-zmenek.png)
+![prvi-zmenek.png](/assets/ilustracije/prvi-zmenek.png)
 
 Jasmina je postala pozorna in hitro sklepala, da ima na sebi zgolj spodnje perilo. Še vedno ni mogla obrniti glave. Oči so se ji počasi prilagodile na svetlobo in pred seboj je zagledala dva najstnika, ki sta si jo previdno ogledovala. Levi je bil debelejši, z razcapanim puloverjem in zelo kratkimi lasmi, desni pa je bil bolj urejen, z daljšimi črnimi lasmi, spetimi v čop.
 

@@ -1,10 +1,9 @@
 ---
 layout: post
 title:  "Materino znamenje"
-date:   2019-11-17 18:45:16 +0200
+date:   2019-11-17
 categories: kratkeZgodbe
 ---
-
 "Ne, ne zajebavam se," je rekel Mare in izpraznil še zadnje kaplje iz pločevinke piva. "Totalno huda je bila!"
 
 "Kje si bil to? V Avstriji?" je Zoki previdno vprašal.
