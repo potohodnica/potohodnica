@@ -3,7 +3,7 @@ layout: home
 title:
 order: 0
 ---
-Jan piše, Živa riše. Skupaj ustvarjava.
+
  
 ## Kratke zgodbe
  
