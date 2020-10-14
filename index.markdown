@@ -1,10 +1,9 @@
 ---
-layout: home
+layout: page
 title:
 order: 0
 ---
 [//]: <>
- 
 ## Kratke zgodbe
  
 [Materino znamenje]({% post_url 2019-11-17-materino-znamenje %}) <br/>
