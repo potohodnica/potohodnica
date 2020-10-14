@@ -5,6 +5,8 @@ permalink: /about/
 order: 2
 ---
 
+![prikazna.png](/assets/prikazna.png)
+
 Potohodnica je pa tudi vrsta hobitske pesmi, ki so govorile o mikih potovanja (vštevši užitke po prihodu domov). Najbolj slavna je tista, ki jo zapojejo Frodo, Samo in Pipin na poti v Škrbanjo. Verze zanjo je zložil že Bilbo, po napevu, ki je bil star kot griči, in jih je naučil Froda, ko sta se sprehajala po stezah v dolini Vode in se pomenkovala o Prigodi.
 
 <p style="text-align: center;">
