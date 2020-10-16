@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Prvi zmenek"
-date:   2019-11-18 18:05:16 +0200
+date:   2019-11-18
 categories: kratkeZgodbe
 ---
 Jasmina je odprla oči. Ni se mogla premakniti. Ozrla se je okrog sebe. V sobi je bila skoraj čista tema. Videla je samo obrise pograda, postelje in knjižne police. Najbrž sem v neki otroški sobi, je pomislila. Spet se je brez uspeha poskusila premakniti. Na zapestju ni čutila nobene vrvi ali česa podobnega, ki bi jo držalo. Začutila je, kako jo grabi panika. Ni vedela, kako se je znašla tukaj. Pravzaprav se ni mogla spomniti prav ničesar. Jasmina … kaj? Še lastnega priimka ne vem, je ugotovila z grozo. Želela je zakričati, a ji tudi to ni uspelo. Nič ni mogla, čeprav ji je vsak del telesa kričal, naj vendar stori nekaj, karkoli.
