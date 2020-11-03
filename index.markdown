@@ -1,7 +1,5 @@
 ---
 layout: page
-title:
-order: 0
 ---
 [//]: <>
 ### Zadnje objave
@@ -9,6 +7,8 @@ order: 0
 [Prvi zmenek]({% post_url kratkeZgodbe/2019-11-18-prvi-zmenek %}) <br/>
 [Rjuha]({% post_url kratkeZgodbe/2019-11-17-rjuha %}) <br/>
 
-### Vse objave
-[***Kratke zgodbe**]({% link kratkeZgodbe.markdown %}) <br/>
-[***Princi apokalipse**]({% link princiApokalipse.markdown %}) <br/>
+### Objave po kategorijah
+[Kratke zgodbe]({% link kratkeZgodbe.markdown %}) <span style="color:#2a8fe9">|</span>
+[Princi apokalipse]({% link princiApokalipse.markdown %})
+
+

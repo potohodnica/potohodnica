@@ -1,7 +1,5 @@
 ---
 layout: page
-title:
-order: 0
 ---
 [//]: <>
 ### Princi apokalipse
