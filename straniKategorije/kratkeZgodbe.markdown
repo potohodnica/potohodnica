@@ -4,7 +4,7 @@ layout: page
 [//]: <>
 ### Kratke zgodbe
 [Policaj beži pred plazom]({% post_url kratkeZgodbe/2019-06-20-policaj-bezi-pred-plazom %}) <br/>
-[Kaj pa če ]({% post_url kratkeZgodbe/2019-07-30-kaj-pa-ce %}) <br/>
+[Kaj pa, če ... It All Goes Too Far]({% post_url kratkeZgodbe/2019-07-30-kaj-pa-ce %}) <br/>
 [Materino znamenje]({% post_url kratkeZgodbe/2019-11-17-materino-znamenje %}) <br/>
 [Rjuha]({% post_url kratkeZgodbe/2019-11-17-rjuha %}) <br/>
 [Večerja]({% post_url kratkeZgodbe/2019-11-17-vecerja %}) <br/>
