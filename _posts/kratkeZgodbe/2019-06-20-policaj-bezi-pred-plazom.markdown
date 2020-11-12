@@ -47,7 +47,7 @@ Martina je že švigala po belih strminah, ko je podpredsedniku končno postalo 
 
 Sedaj je bilo jasno, kam je plaz usmerjen. Naravnost proti hotelu, v katerem so bili nastanjeni praktično vsi voditelji sveta in noben varnostnik ali policist jih ni mogel zaščititi … razen Martine. 
 
-![policaj-bezi-pred-plazom.jpg](/assets/ilustracije/policaj-bezi-pred-plazom.jpg)
+![policaj-bezi-pred-plazom.jpg](/assets/ilustracije/kratkeZgodbe/policaj-bezi-pred-plazom.jpg)
 
 Plaz je bil za zdaj še majhen, vendar je z vsako eksplozijo postal bolj mogočen. V dolini bi brez dvoma v zgodovinske knjige odpihnil hotel z vsemi gosti. Martina je zdaj že prehitela eksplozije, samo dovolj hitro je rabila odsmučati do naslednje bombe, da bi iztrgala fluorescentno zeleno žičko in s tem prekinila detonacijo. 
 
