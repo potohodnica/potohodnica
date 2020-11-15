@@ -3,6 +3,7 @@
 ---
 
 @import "minima";
+$link-visited-color: #000000 !default;
 
 .site-title::before {
     content: url("/assets/logo.svg");
