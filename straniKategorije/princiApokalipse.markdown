@@ -3,6 +3,4 @@ layout: page
 ---
 [//]: <>
 ### Princi apokalipse
-[Materino znamenje]({% post_url kratkeZgodbe/2019-11-17-materino-znamenje %}) <br/>
-[Prvi zmenek]({% post_url kratkeZgodbe/2019-11-18-prvi-zmenek %}) <br/>
-[Rjuha]({% post_url kratkeZgodbe/2019-11-17-rjuha %}) <br/>
+[1. poglavje - Dobrodošli v vihteči meč]({% post_url princiApokalipse/2018-01-14-pa1-dobrodosli-v-vihteci-mec %}) <br/>

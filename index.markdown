@@ -21,4 +21,6 @@ layout: page
 [Zamorkla]({% link straniKategorije/zamorkla.markdown %}) <span style="color:#2a8fe9">|</span>
 [Ostalo]({% link straniKategorije/ostalo.markdown %})
 
+[I'm an inline-style link](http://127.0.0.1:4000/assets/audio/untitled.mp3)
+
 

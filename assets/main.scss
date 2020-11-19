@@ -3,7 +3,11 @@
 ---
 
 @import "minima";
-$link-visited-color: #000000 !default;
+
+$text-color:            #111111 !default;
+$link-visited-color:    #2a7ae2 !default;
+$link-base-color:       darken($link-visited-color , 30%) !default;
+$link-hover-color:      $text-color !default;
 
 .site-title::before {
     content: url("/assets/logo.svg");
@@ -14,3 +18,25 @@ $link-visited-color: #000000 !default;
     padding-right: 5px;
     
     }
+	
+a {
+  color: $link-base-color;
+  text-decoration: none;
+
+  &:visited {
+    color: $link-visited-color;
+  }
+
+  &:hover {
+    color: $link-hover-color;
+    text-decoration: underline;
+  }
+
+  .social-media-list &:hover {
+    text-decoration: none;
+
+    .username {
+      text-decoration: underline;
+    }
+  }
+}
