@@ -35,6 +35,8 @@ Stražnik je v trenutku postal povsem bel. Skušal je kaj izustiti, a jezik ni s
 V predprostoru je opat srečal dva meniha, ki pa nista nosila običajnih meniških oblačil, temveč črne halje s simbolom v obliki trikotnika s še eno črto, ki je pravokotno prečkala njegovo spodnjo stranico. Ko je opat opazil ta simbol, se je vidno zdrznil, vendar ne toliko kot meniha, ki sta opazila opata. 
 Rogvald se je po tem srečanju precej podvizal in bil kaj kmalu pri polžastih stopnicah, ki so vodile do njegove sobe. Na poti je srečal še nekaj menihov in stražnikov, vsi so ga opazovali presenečeno ali celo prestrašeno. Ko je opat končno vstopil v svojo sobo, je nemudoma zapahnil vrata ter potisnil prednje težko skrinjo. Rogvald se je ozrl po sobi. Srednje velika soba, obložena s temnim lesom je dajala prijeten študijski izgled. V enem koncu sobe je bila manjša postelja in garderobna omara, v drugem pa mogočna miza in knjižna omara iz masivnega lesa. Nad mizo je bilo okno, ki je gledalo na bližnji gozd. Opat je zadovoljno pogledal barikado, vendar kmalu to ni bil več opat temveč Franjo in Jezal, ki sta sestavljala nekakšen totem.
 
+![2018-09-16-pa20-franjo-in-jezal-postaneta-eno.jpg](/assets/ilustracije/princiApokalipse/2018-09-16-pa20-franjo-in-jezal-postaneta-eno.jpg)
+
 »Samo še kakšno minuto in iluzije bi bilo konec,« je rekel Franjo, ko si je oddahnil.
 
 »Si videl kakšne simbole nosijo menihi in stražarji?« je vprašal Jezal.

@@ -36,6 +36,8 @@ Oreioth je presenečeno pogledal in s strahom v glasu rekel: ʺKaj, punčka? Nis
 
 ʺUrok prijateljstva,ʺ mu prišepne Franjo, ko vidi zbegan Jezalov obraz. ʺPovej nama,ʺ nadaljuje Franjo, ko se obrne proti Oreiothu, ʺveš kaj o kakšni punčki v teh votlinah?ʺ
 
+![2018-02-11-pa5-slepa-ulica.jpg](/assets/ilustracije/princiApokalipse/2018-02-11-pa5-slepa-ulica.jpg)
+
 ʺRes ne bi vedel, saj veš da najboljšima prijateljema ne bi lagal,ʺ brezskrbno reče Oreioth. ʺTukaj sem samo jaz in moji ljubljenčki. Redko sploh zahajamo ven. Živim od gozda in skoraj nikoli ne obiščem mesta.ʺ Približa se Franju in potihoma reče: ʺČisto iskreno, ne prenašam najbolj drugih ljudi.ʺ
 
 ʺMorda res govori resnico, ampak boljše bi bilo, da ga odpeljeva s sabo,ʺ pripomni Jezal. 

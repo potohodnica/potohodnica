@@ -58,3 +58,5 @@ Preden se je Franjo dobro zavedal, kaj se je zgodilo, so že vsi hiteli iz stolp
 »Savra je omenila, da lahko pride do lova,« je rekel Jezal. »Zmenil sem se za enega grifona. Jaz ga bom vodil, ti pa lahko čaraš.«
 
 »Prav,« je odvrnil Franjo. »Ampak ob vrnitvi se res morava pogovoriti,« je še dodal. Nato je z Jezalovo pomočjo zlezel na hrbet mogočne živali, katera se je potem grozno hitro začela dvigovati v nebo. Lov se je začel! 
+
+![2018-04-01-pa12-tretje-kolo-po-imenu-franjo.jpg](/assets/ilustracije/princiApokalipse/2018-04-01-pa12-tretje-kolo-po-imenu-franjo.jpg)

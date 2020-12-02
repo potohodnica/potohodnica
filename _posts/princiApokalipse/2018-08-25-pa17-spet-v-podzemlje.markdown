@@ -8,6 +8,8 @@ Vrata so se počasi odprla. Skozi je najprej prišla dolga noga, ki je spominjal
 
 Velikanska žuželka se je sprehodila do bledoličnega moškega, ki je še vedno negibno sedel pri svoji mizi. Iz nekakšnih por na njenem vratu so na plano spolzele klešče, ki so zagrabile moškega. Ta je vse skupaj tiho prenašal. Kot bi mignil, je žuželka odvlekla moškega nazaj v kuhinjo. Jezal in Franjo sta še nekaj časa nemo opazovala jedilnico.
 
+![2018-08-25-pa17-spet-v-podzemlje.png](/assets/ilustracije/princiApokalipse/2018-08-25-pa17-spet-v-podzemlje.png)
+
 »Kaj za hudiča je bilo pa to?« je šokirano vprašal Jezal, potem ko se je prepričal, da so kakršni koli zvoki potihnili v daljavi.
 
 »Zagotovo ena izmed najbolj neokusnih stvari, ki sem jih videl,« je prispeval svoje mnenje Franjo.

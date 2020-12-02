@@ -28,6 +28,8 @@ Brez besed ali znakov sta Franjo in Jezal odtavala med police in si ogledovala v
 
 Niti mnogi nerodni poskusi vlamljanja ključavnice, niti bruhanje kisline niso obrodili sadov. Vrata so ostala trdno zaklenjena. Franjo je hitro ugotovil, da so vrata čarobno zapahnjena, a je vzelo kar nekaj časa, da je preko kretenj to uspel dopovedati Jezalu. Ko se je Jezal končno sprijaznil s situacijo, je sklonil glavo v obupu. Oba sta se zavedala, da sta izčrpala možnosti za odpiranje vrat … z izjemo ene. Franjo je namreč obvladal urok, ki je odprl še tako dobro zaklenjena vrata. Edina slabost uroka je bila, da je bil glasen. Neverjetno, nepredstavljivo glasen. Jezal je skomignil z rameni in pokazal Franju, naj izvede urok. Franjo je pokimal, vendar se je, preden je izvedel urok navihano nasmehnil in Jezalu pomignil proti vinjaku.
 
+![2018-09-30-pa22-opat-je-mrtev-naj-živi-opat.jpg](/assets/ilustracije/princiApokalipse/2018-09-30-pa22-opat-je-mrtev-naj-živi-opat.jpg)
+
 Nekaj minut kasneje se je ves samostan stresel do samih temeljev. Stražniki so začeli tekati po hodnikih, vendar je zvok odmeval med debelimi zidovi samostana in težko je bilo določiti od kje prihaja. Stražar in nekaj menihov je končno le prihitelo do sobe z vinjakom, kjer jih je presenetil napis, ki je gorel kar na kamnitih tleh.
 
 Sem zelo mrtev in razburjen. Pazite se!

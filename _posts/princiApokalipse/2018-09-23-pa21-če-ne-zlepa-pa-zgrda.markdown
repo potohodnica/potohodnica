@@ -20,6 +20,8 @@ Takoj po pristanku sta že tekla proti gozdu. Ko sta prihitela do prvih dreves, 
 
 Mrak je že padal, ko je Franjo končno zaključil z branjem dokumentov. Jezal je sedel na precej oddaljenem štoru. Tja je bil nagnan, ko je Franju pred več urami skoraj zažgal opatova razmišljanja o vrstah trave, ki rastejo v okolici samostana. Poleg Jezala je bil kup zoglenelih listov in vejic. Kot najstnik je ugotovil, da ima sposobnost pričarati manjši plamen. Od tedaj hitro gorljive stvari niso bile varne pred njegovim kratkočasenjem. Nekoč se je po posebej napornem popoldnevu, ki ga je bil prisiljen preživeti s svojo najmanj ljubo sestrično, spravil celo na njeno punčko iz cunj. Za kazen je moral nekaj ur preživeti v temnici, kar ga je precej osrečilo, saj se je lahko v miru igral s svojim plamenom.
 
+![2018-09-23-pa21-če-ne-zlepa-pa-zgrda.jpg](/assets/ilustracije/princiApokalipse/2018-09-23-pa21-če-ne-zlepa-pa-zgrda.jpg)
+
 »Jezal, to boš hotel slišati,« je rekel Franjo.
 
 »Deluješ nekam zaskrbljen.«

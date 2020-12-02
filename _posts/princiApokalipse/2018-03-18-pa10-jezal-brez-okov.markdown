@@ -18,6 +18,8 @@ Franjo ga je previdno pogledal. »Kaj se ti ni mudilo naprej?« ga je vprašal.
 
 Jezal je na plano privlekel zlatnik in ga pomolil v zrak. »Razen, če imaš kakšno boljšo idejo … ?« Franjo je zmajal z glavo, Jezal pa vrgel zlatnik v zrak. »Kralj s tokom, bogovi proti toku« je hitro rekel, preden je ujel zlatnik in si ga z eno roko pritisnil na hrbtno stran dlani druge. Nekaj trenutkov je počakal, nakar je dvignil roko in pogledal. »Kralj!« je oznanil. »Še prav nama pride, saj naju je tok že ponesel v pravo smer,« je še dodal.
 
+![2018-03-18-pa10-jezal-brez-okov-1.jpg](/assets/ilustracije/princiApokalipse/2018-03-18-pa10-jezal-brez-okov-1.jpg)
+
 Franjo se je kislo nasmehnil. Ni bil najbolj navdušen nad idejo, da prepusti odločitve naključjem. Zato se mu tudi smer ni zdela nič bolj prava od druge, a sam pri sebi je moral priznati, da ni videl druge rešitve. Medtem ko je Franjo premleval te misli, je Jezal že besno veslal.
 
 Dan se je prevesil v večer. Kljub pomoči toka reke se je Jezal že utrudil. Odločila sta se, da bi bilo najboljše, če prenočita na bregu. Do spanja na prostem nista imela pretirane želje, saj sta se še predobro zavedala, kaj se lahko skriva v temi. Sploh Jezal je čutil udarce ponižnosti, ki so tolkli po jeklenem ščitu njegovega ega. Žal druge izbire ni bilo. Postavila sta si manjši taborni ogenj in se zmenila za izmenjujočo stražo.
@@ -55,6 +57,8 @@ Franjo mu ni odgovoril, le namenil mu je nejevoljen pogled. Hitro sta šla proti
 »Prav na nikogar,« je v obrambi rekel Jezal. »Samo zasliševal sem … z rapirjem v roki. Preveč nisem zvedel.« Še malo je premislil in nadaljeval: »Vem pa, na primer, da je njemu ime Shoalar,« in pokazal na moža pred njima.
 
 Franjo se je prijel za glavo, a veliko časa ni imel za negodovanje. S kotičkom očesa je opazil, kako spretno je Shoalar zamahnil z rokami. Proti njima je kar naenkrat pljusknil ogromen val. Ta ju je vrgel najprej v zrak in nato še na tla. Jezal je bil hitro na nogah. Roke je sklenil pri palcih in iz njegovih dlani je bruhnil plamen v debeluha. Ta se ni dovolj hitro umaknil in prav kmalu so bile njegove že tako razcapane cunje še ožgane. Franja je Jezalovo čaranje presenetilo in za trenutek ni vedel, kaj storiti. K sreči se je kmalu spet zavedel situacije in je še sam sprožil nekaj dobro zalučanih urokov. Shoalar ni ostal dolžan. Veter, ki bi zmrznil še pingvine, je pihnil čez Jezala in Franja. To ju je ustavilo samo za trenutek. Kmalu je Jezal z rapirjem v roki že kresnil Shoalarja. Ni dolgo trajalo in Shoalar je ležal na tleh nezavesten.
+
+![2018-03-18-pa10-jezal-brez-okov-2.jpg](/assets/ilustracije/princiApokalipse/2018-03-18-pa10-jezal-brez-okov-2.jpg)
 
 »Je mrtev?« je previdno vprašal Jezal.
 

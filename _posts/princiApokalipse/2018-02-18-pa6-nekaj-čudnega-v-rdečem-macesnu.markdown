@@ -24,6 +24,8 @@ Jezal ni takoj odgovoril, ampak se je zagledal v Franjev nahrbtnik iz katerega j
 
 Jezal ni rekel nič, a bilo je jasno, da se strinja.
 
+![2018-02-18-pa6-nekaj-čudnega-v-rdečem-macesnu.jpg](/assets/ilustracije/princiApokalipse/2018-02-18-pa6-nekaj-čudnega-v-rdečem-macesnu.jpg)
+
 ʺČe nama nihče ne želi pomagati, greva morda sama kaj raziskati? Morda se vsaj pogovoriti z Oreiothom?ʺ je vztrajal Franjo.
 
 ʺMorda pa res,ʺ je odvrnil Jezal z nekaj navdušenja, saj bi mu v tem trenutku kar koli bolj ustrezalo kot nadaljnje posedanje za razmajano mizo in pitje vodenega piva. ʺMorda se delava, da greva spat, v resnici se pa izmuzneva skozi okno in odpraviva do stražarnice? Tja so peljali Oreiotha, ko sva ga nazadnje videla.ʺ

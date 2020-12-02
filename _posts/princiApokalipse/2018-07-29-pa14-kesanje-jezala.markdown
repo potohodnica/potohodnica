@@ -28,6 +28,8 @@ Franjo se je nasmehnil. »Morda tega res ne razumem, ampak sem bil pa naučen, d
 
 Jezal se je kislo nasmehnil. Pri sebi še ni v celoti priznal opravičila.
 
+![2018-07-29-pa14-kesanje-jezala.jpg](/assets/ilustracije/princiApokalipse/2018-07-29-pa14-kesanje-jezala.jpg)
+
 Hitro se je pričel sproščen pogovor o dogodkih zadnjih dni, čemur je sledilo iskanje primernega kraja za spanje. Kot začarano, sta pred seboj ob poti zagledala krčmo.
 
 »Uf, ne spomnim se te krčme od zadnjič, ko sva hodila po tej cesti,« je presenečeno rekel Franjo.

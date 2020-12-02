@@ -16,6 +16,8 @@ Rov se je nato kmalu razširil v manjšo jamo, z izhodom tako na levi kot na des
 
 ʺAha, končno malo akcije,ʺ si je pridušeno rekel Jezal in se postavil v sabljaški položaj, z eno roko za hrbtom in s svojim rapirjem v drugi.
 
+![2018-01-28-pa3-pogumno-v-podzemlje.jpg](/assets/ilustracije/princiApokalipse/2018-01-28-pa3-pogumno-v-podzemlje.jpg)
+
 Prvi zombi se mu je približal in Jezal je brez obotavljanja zamahnil proti njemu. Z elegantnim zamahom mu je odsekal roko in del prsnega koša, a to zombija ni vidno ustavilo. Za trenutek je izgledalo, kot da bo zombi ugriznil v Jezalovo roko, a je pred tem iz ozadja nekaj zaprasketalo in v zombijevo glavo je priletel sunek modre svetlobe. Osvetlilo je njegovo lobanjo, iz katere se je začelo divje kaditi. Po nekaj trenutkih je bilo vsega konec in nemrtvo truplo je ponovno mrtvo ležalo na tleh.
 
 Jezal je presenečeno pogledal nazaj in videl Franja, ki je stal z dvignjenimi rokami, iz katerih se je kadil moder dim. Jezal se mu je pomenljivo nasmehnil. Trenutek miru je hitro minil, saj sta se preostala zombija počasi, a neumorno bližala. 

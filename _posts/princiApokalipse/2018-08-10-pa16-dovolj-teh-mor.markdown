@@ -12,6 +12,8 @@ Franjo se je tresel, ko je poslušal rjovenje svojega, običajno zares mirnega i
 
 Okrog Franja je za trenutek zasvetilo tisoč majhnih lanternic, vsaka je sijala z drugačno barvo. Nato je Franjo začutil, kakor da bi iz vsake izmed lanternic segla roka v Franjevo telo, še globlje, prav v njegovo dušo. Sesedel se je na hladna kamena tla in začutil, kako so roke zagrabile nekaj v njem. Nekaj, kar je bilo prvinsko in z njim že od rojstva. V naslednjem trenutku so roke ta nekaj iztrgale iz Franja. Bolečina, ki jo je začutil, je bila nepojmljiva in neprimerno bolj grozovita, kot si je Franjo sploh lahko zamislil.
 
+![2018-08-10-pa16-dovolj-teh-mor.jpg](/assets/ilustracije/princiApokalipse/2018-08-10-pa16-dovolj-teh-mor.jpg)
+
 Franjo se je spet zavedal samega sebe. Ležal je na postelji nekje daleč stran od Adergasa. Bolečine ni bilo več, vendar tudi nečesa drugega. Poskušal je vstati, a ni mogel. Niti oči ni mogel odpreti. Gol je bil, vendar je čutil, da pogreša nekaj drugega. Zdrznil se je in tresajoče dvignil roke, kolikor jih je zmogel. Poskusil je začarati majhen plamenček v roki. Ni mu uspelo. Poskusil je znova in znova. Brez uspeha. Tedaj ga je resnica udarila kot macola – Haron mu je vzel sposobnost čaranja!
 
 »To more biti nekakšna pomota,« si je začel govoriti. »Franjo umiri se, premisli kaj se dogaja in kako si prišel sem,« si je večkrat ponovil. Osredotočil se je najprej na dihanje, nato na obraz. V nosu je začutil neko žgečkanje. Komaj opazno sprva, a vedno bolj moteče.

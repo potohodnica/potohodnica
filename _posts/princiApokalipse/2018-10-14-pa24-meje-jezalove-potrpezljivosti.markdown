@@ -28,6 +28,8 @@ Jezal se je naslonil na steno hodnika in gledal, kako je Franjo izginil za ovink
 
 Trola sta se dolgo trudila, a kaznovati ju je začelo pomanjkanje kondicije in razdalja se je povečevala. Sčasoma je utrujenost premagala lakoto in trolov ni bilo več slišati ali vonjati. Poleg tega se je boginja sreče končno nasmehnila prijateljema. Zadihana sta se razgledala okrog sebe in presenečena ugotovila, da stojita pri stopnišču, ki je vodilo nekam navzgor. Brez pomislekov sta sledila stopnicam. Na vrhu je bil debel lesen pokrov, ki ga je že načel zob časa. Zapah, ki bi moral od znotraj zapirati vrata, je bil preperel. S Franjem sta pokukala skozi luknje v lesu. Sledilo je olajšanje, saj je bil na drugi strani gozd. Jezal je brez težav dvignil pokrov, ki mu je skoraj ostal v rokah. Splezal je ven, sledil mu je še Franjo. Spogledala sta se, nakar je Franjo previdno pogledal nazaj v podzemlje.
 
+![2018-10-14-pa24-meje-jezalove-potrpezljivosti.jpg](/assets/ilustracije/princiApokalipse/2018-10-14-pa24-meje-jezalove-potrpezljivosti.jpg)
+
 “Ne! Enostavno ne. Jaz imam strica, ki nujno rabi reševanje. Ti pa počni, kakor veš in znaš,” je rekel Jezal in odkorakal stran.
 
 Franjo je zavzdihnil, se spomnil na Harona in odhitel za Jezalom.

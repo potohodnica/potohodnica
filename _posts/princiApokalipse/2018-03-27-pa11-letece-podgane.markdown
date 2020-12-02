@@ -42,3 +42,5 @@ In sta šla, naravnost do glavnega vhoda. Most je bil spuščen, a vrata zaprta.
 »Jezal dan Helder iz starodavne plemiške družine dan Helder,« je s svojim najpomembnejšim glasom naznanil Jezal.
 
 »Jaz sem pa Franjo,« je previdno in mnogo bolj potiho pripomnil Franjo, ki še zdaj ni verjel v Jezalov načrt. Čez nekaj trenutkov so se vrata odprla in ven je stopil nek vojščak. Ta je za trenutek postal na svojem mestu, nato pa je odkorakal čez most. Nekje na sredi mostu je postalo Franju jasno, da je vojščak v resnici vojščakinja. Bila je visoka, izpod čelade se ji je kazal občasen pramen zlatih las. Njen korak je bil izurjen, a vendar eleganten. Bila je oblečena v enak oklep, kot so ga imeli napadalci, v roki pa je nosila sulico. Ustavila se je za slabo dolžino sulice pred njima ter ju premerila. Franjo je opazil, da je še tesneje stisnila sulico v roki.
+
+![2018-03-27-pa11-letece-podgane.jpg](/assets/ilustracije/princiApokalipse/2018-03-27-pa11-letece-podgane.jpg)

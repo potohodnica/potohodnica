@@ -20,6 +20,8 @@ Franjeva, mnogo manjkrat slišana verzija, je bila precej bolj preprosta. Po za�
 
 Ura je bila že pozna in Franjo se je nadejal, da bodo kmalu še najboljši žurerji onemogli. Preden se bosta z Jezalom odpravila spat, bo njegova priložnost, da mu končno pove grozno resnico o Savri. Veseljačenje se je res zaključevalo, a Savra je bila še vedno ob Jezalu. Celo vedno bolj se je stiskala k Jezalu in mu šepetala stvari v uho. Jezalov odziv je bil vsakič bolj neumen nasmešek. »Upam, da ga ne poskuša uročiti ali kaj podobnega,« si je mislil Franjo. »Dandanes je raznih čarovnic, ki so se učile čaranja mimo akademskih vod, vedno več.«
 
+![2018-04-08-pa13-prekinjati-ni-lepo.jpg](/assets/ilustracije/princiApokalipse/2018-04-08-pa13-prekinjati-ni-lepo.jpg)
+
 Končno se je tudi Jezal začel odpravljati. Savra mu je seveda tesno sledila. Franjo je skoraj poskočil, ko je videl, da Jezal končno odhaja, saj je imel zabave že vrh glave. Vendar je sledilo še eno neprijetno presenečenje. Jezal ni zavil v njuno sobo, temveč je nadaljeval s Savro proti njeni spalnici. Franjo je odhitel je proti Jezalu in ga pocukal za rokav. »Mar ne greš še spat?«
 
 »Mislim, da bom noč preživel pri Savri,« je rekel Jezal in mu pomenljivo pomežiknil.

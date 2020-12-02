@@ -47,3 +47,5 @@ Skupaj sta vstopila skozi ovalen obok skozi katerega so prišli zombiji. Ta obok
 “Ahg,” je zagodrnjal Jezal. “Ob živce bom. Povej mi kje je punčka!” je še rekel in stopil korak naprej.
 
 V tistem trenutku so izpod druge roke Oreiotha odletele tri svetleče puščice. Preden je Jezal sploh opazil, kaj se dogaja, so ga vse tri zadele in z glasnim truščem ga je vrglo nazaj, iz njegovega oklepa pa se je zakadilo. 
+
+![2018-02-04-pa4-grajski-norčki-in druga-zalega.jpg](/assets/ilustracije/princiApokalipse/2018-02-04-pa4-grajski-norčki-in druga-zalega.jpg)

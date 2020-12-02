@@ -28,6 +28,8 @@ Jezal je izkoristil trenutek in se zagnal v žuželko. Zadal ji je več hudih ud
 
 Potem, ko je na hitro preveril, da je žuželka res mrtva, je Jezal odhitel k Franju. Na njegovo veliko presenečenje je imel Franjo na glavi klobuk in si kot v transu nekaj mrmral. Jezal je snel klobuk s Franjeve glave. »Si v redu?«
 
+![2018-09-08-pa19-govoreča-pokrivala-in zamaščeni-čarovniki.jpg](/assets/ilustracije/princiApokalipse/2018-09-08-pa19-govoreča-pokrivala-in zamaščeni-čarovniki.jpg)
+
 Franjo je rabil nekaj trenutkov, da je prišel k sebi. »Odlično,« je nato odvrnil. »Ko sem priletel v zid sem komaj dihal, tedaj mi je klobuk rekel, naj si ga nataknem in kar naenkrat sem se počutil čilega kot že dolgo ne.« Franjo je zamolčal, da se je poleg tega med nošnjo klobuka čutil, kot da bi spil več litrov najboljšega vina v celem Adergasu.
 
 Franjo je hitro pospravil klobuk ob tem, ko sta se z Jezalom odpravila do ogromnega debelega bitja na drugem koncu sobane. Na njuno začudenje in tudi olajšanje gora maščobe ni več dihala. Iz glave je tekel potoček krvi in se mešal z maščobo in znojem ter kot rjava tekočina kapljal po tleh. Franjo in Jezal sta se spogledala, si prikimala in se kar se da hitro odpravila iz jame. Na površju ju je pričakalo jutranje sonce, medtem ko krčme ni bilo več nikjer. Le njuna obleka je ležala na mokri jutranji travi. Obleko sta pospravila v svoja nahrbtnika in jo brez besed ter s hitrim korakom ubrala čim dlje stran.
