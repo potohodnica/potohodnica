@@ -1,56 +1,59 @@
 ---
 layout: post
-title:  "Policaj beži pred plazom"
-date:   2019-06-20
-categories: kratkeZgodbe
+title:  "2. poglavje - Graščak kopjaste pečine"
+date:   2018-01-21
+categories: princiApokalipse
 ---
-“Kako za hudiča sem se znašla v tej situaciji?” se je vprašala Martina, ko je bežala pred ogromnim plazom. Ta gmota ni grozila zgolj njej, temveč naravi sami, svetovnemu miru in nenazadnje nedolžni mulariji.
+“Zdaj pa še enkrat od začetka Maegla,” je mirno rekla točajka Argola medtem, ko je s pomočjo hudo močne žganice mirila gospo, ki je pred nekaj minutami prekrižala Jezalove osvajalske načrte.
 
-Nekaj dni pred tem je Martina začela svojo pot kot policistka. Prej je sicer že bila zaposlena na policiji, vendar kot vrhunska športnica. Še slabo leto nazaj je v zrak dvignila svoj šesti zaporedni veliki kristalni globus Bila je, brez dvoma, na samem vrhu najboljših smučarjev in smučark vseh časov. Po daljšem dopustu, ki ji ga nihče ni zameril, se je odločila, da bo nadaljevala kariero kot policistka. Nadejala se je, da bo začela na smučišču in opozarjala mularijo, naj ne divjajo. Z razliko od belih strmin se ji tu ni vse izteklo po načrtih.
+Kar nekaj kozarčkov kasneje se je izkazalo, da so nenavadne pojave ugrabile Maeglino vnukinjo. Omemba nenavadnih pojav je bila prva stvar celotne pripovedi, ki je celo Franja prepričala, da je vstal izza svoje mize in se sprehodil do pulta, kjer so bili zbrani vsi ostali obiskovalci krčme.
 
-Naneslo je, da se je srečanje voditeljev G20 najbogatejših držav ravno tiste dni odvijalo v Kranjski Gori. Za majhno Slovenijo je bil seveda tak dogodek izjemno zahteven. Martina je le dan prej dobila klic, da nujno potrebujejo vsakega prostega policista za varovanje srečanja. Čeprav naj bi na delo nastopila šele čez dober teden dni,  se je Martina vseeno odzvala. 
+“Nenavadne pojave pravite?” se je oglasil Franjo potem, ko se je skobacal na barski stolček, vrinil v krog in ne najraje pritegnil precej pozornosti nase. “Jih lahko morda boljše opišete?” je vprašal zvedavo.
 
-Usodni dan se je začel zelo zgodaj. Ob pol štirih zjutraj je policijski avtobus, na katerem je bila tudi Martina, že peljal mimo Jesenic. Ob petih je bila na obrobju Kranjske Gore že postrojitev več sto slovenskih, italijanskih in avstrijskih policistov. Srečanje je bilo še posebej pomembno. Odločitve, ki naj bi jih sprejemali v naslednjih dneh, bodo zelo neposredno vplivale na prihodnost celotnega planeta. Okoljski problemi z začetka 21. stoletja so bili samo še prijetne spomladanske sanje v primerjavi s težavo, ki je nastala po “dogodku”. In kar je še hujše, vseh šest najmočnejših vladarjev sveta je imelo popolnoma navzkrižne poglede o celotni zadevi.
+Maegla je zmedeno pogledala v smer majhnega, v temno zavitega Franja, ki se je kar naenkrat pojavil v njenem vidnem polju. Po kratkem premisleku je razložila: ʺpremikali so se čudno, nerodno. Občasno so spuščali gromke zvoke in za sabo puščali grozen vonj.ʺ
 
-Martina je stala pred hotelom, v katerem naj bi se popoldne kresala mnenja največjih in najpomembnejših. Toda še takšni veljaki so delovali zanemarljivi ob pogledu na Svaroga. Gora, prav tako posledica “dogodka”, je s svojim štiri tisoč metri vzbujala strahospoštovanje tudi med najpogumnejšimi alpinisti. Slovenci pai so bili hitro polni modrovanj, kako nizek je pravzaprav videti Veliki Klek.
+Franjo se je za trenutek zamislil. ʺTo se sliši kot zombiji, najbrž pod nadzorom nekoga ali nečesa.ʺ Celotno omizje se je presenečeno ozrlo proti Franju, ta pa je nadaljeval: ʺVeste, večina ljudi misli, da zombiji, oziroma oživljeni mrtveci, kot jih danes kličejo strokovnjaki nekromantije, nimajo nekega razuma, vendar je to zmotno. No že sam izraz je zmoten, namesto nekromanta raje rotilec duhov mrtvih, kot se uveljavlja ...ʺ
 
-“Pravijo, da če se v naslednjih dneh kaj zmenijo, ga v nekaj letih ne bo več,” ji je rekel kolega, ki je stal poleg nje in prav tako občudoval goro.
+Preden je Franjo lahko nadaljeval, je Argola besno udarila po pultu. ʺOreioth! To mora biti njegovo delo. Zanj govorijo, da zna prebuditi mrtve. Vedno sem mislila, da so to samo govorice, ampak morda pa je res.ʺ
 
-Martina ga je pogledala. Bil je mlajši fant, komaj dobro iz srednje šole. Končno se je dovolj umiril, da se je lahko z njo normalno pogovarjal. Ko ji je bil zjutraj dodeljen za partnerja, se je najprej vsaj pol ure tresel in jo prestrašeno gledal. Končno se je dovolj ojunačil, da jo je lahko prosil za eno skupno sliko.
+ʺAh, osnovna nekromantija res ni pretirano kompleksen urok,ʺ pripomni Franjo. ʺEdino trupla je rahlo nerodno dobiti. Kje pa se da najti tega Oreiotha?ʺ
 
-“Vem, vsi pravijo, da je treba popraviti stanje,” je nadaljeval, “ampak res sem si želel s punco na Antarktiko. Pravijo, da ni boljšega dopustovanja nikjer na svetu.”
+ʺPravijo, da je v Kopjasti pečini, no pravzaprav v jami pod njo, čeprav si nihče ne upa blizu,ʺ reče Argola in po premisleku nadaljuje bolj odločno, ʺvendar nekaj je vseeno treba narediti!ʺ
 
-Pogovor se je nadaljeval podobno enostransko. Martina je občasno pokimala, medtem ko so se iz fanta usipala mnenja, razmišljanja in modrosti, kakršne premorejo samo najstniki.
-“Martina!” je s poveljajočim glasom žlobudranje prekinil načelnik. “Novo zadolžitev imam zate,” ji je rekel. 
+ʺMoj mož že zbira ljudi za iskalno akcijo ,ʺ se je spet oglasila Maegla. ʺOmenjal je celo denarno nagrado za tistega, ki najde našo malo Braelen.ʺ
 
-Načelnik je bil star okrog petdeset let, s kratko sivo brado ter skoraj brez las. Martino je spominjal na njenega prvega trenerja, ki jo je pred skoraj tremi desetletji prvič tekmovalno popeljal na snežne strmine. Kmalu ni bil več kos njenim talentom, a vedno ji je ostal pri srcu.
+Omemba denarja je iz sanjarjenja prebudila Jezala. ʺDenarna nagrada pravite? O kakšnem znesku pa je bilo govora?ʺ
 
-“Oziroma,” načelnikov glas je potihnil preden je nadaljeval, “v resnici bolj prošnjo.”
+ʺOh, jaz bi dala vse, samo da spet lahko vidim Braelen. Najboljše, da vprašate moža. Najbrž se že zbirajo na trgu,ʺ je rekla Maegla.
 
-Martina je prikimala.
+Preden je dobro odgovorila, je bil Jezal že na pol poti skozi vrata. Kmalu za njim je bil tudi Franjo, ki je ugotovil, da iz Maegle ne bo več izvlekel kaj o nenavadnih pojavih.
 
-“Eden izmed višjih diplomatov je velik ljubitelj smučanja in si želi -” je začel načelnik.
+Na glavnem trgu se je zbralo že slab ducat ljudi. Nekateri z laternami v rokah, drugi oboroženi in vsi, vsaj na prvi pogled, pripravljeni na boj. V sredini te množice je stal starejši moški z mogočnimi brki.
 
-Načelnik se je za trenutek ustavil, kot da mu bi bilo nerodno.. “No, želel je večerjo s teboj, a sem ga prepričal na panoramski oblet Svaroga v policijskem helikopterju.”
+ʺSto zlatnikov za tistega ali tisto skupino, ki najde mojo vnukinjo,ʺ je Helvur razglašal pod svojimi brki.
 
-Martina je skomignila z rameni. “Zakaj pa ne?” Ni bilo prvič, da bi imela opraviti z preveč navdušenimi oboževalci in polet v helikopterju je bil daleč od najbolj nenavadnih prošenj ali celo zahtev. Z nacionalizacijo firme Nike in ameriškim predsednikom v upravnem odboru so bila neprimerna povabila stvar vsakdana.
+ʺSuper, saj najbrž veste kam je treba,ʺ je lahkotno rekel Franjo. ʺKako daleč je ta Kopjasta pečina? Glede na to, kar je povedala vaša žena, je vašo vnukinjo ugrabil nek Oreioth.ʺ
 
-Ni minilo pol ure in že je bila več tisoč metrov višje in nezainteresirano poslušala podpredsednika Andore, ki ji je na dolgo in široko razlagal, kako je dobil njene smuči. Prav s temi je baje osvojila svoj drugi veliki globus. Martina ni bila nikoli pretirano sentimentalna. Kljub temu je hlinila čustva do dveh kosov plastike.
+Franjo je ob omembi tega imena hitro postal središče pozornosti, obnašanje množice pa veliko manj vzneseno. Iz pogovorov med ljudmi so se slišali občasni ʺneʺ ali ʺto bo pomotaʺ in druga zanikanja.
 
-Helikopter je že skoraj obletel goro, podpredsednik pa je še kar vztrajal pri svoji epski pripovedi. Martina je vedno bolj pogosto pogledovala skozo okno. Skoraj je že obrnila pogled nazaj, ko je nekje v snežni belini opazila premikajoče se točke. Bolj podrobno je pogledala. Na gori je bila tekom konference popolna prepoved alpinistov. Pomahala je načelniku in pilotu. Helikopter se je spustil bliže in res je bilo nekaj ljudi na gori, ampak se niso vzpenjali. Ko so opazili, da se jim približuje helikopter, so začeli hiteti. 
+ʺKako ste prišli do tega zaključka mali mož?ʺ je Helvur vprašal Franja. Ta je nato obnovil pogovor v krčmi in obrazložil svoje zaključke.
 
-Martina se je prva zavedela, kaj se dogaja. Preden so drugi razumeli, je že obula pancarje, ki jih je podpredsednik Andore kupil na neki dobrodelni dražbi.
+Po daljšem premisleku je Helvur naznanil: ʺPotem pa gremo v Kopjasto pečino, kdo je zraven?ʺ
 
-“Še nižje,” je zavpila pilotu, že s smučmi na nogah in pripravljena, da skoči iz helikopterja.
+Ljudje so potihnili, mnogi so se že prej neopazno umaknili ali ugasnili svoje laterne. Dogajanje je prineslo nasmešek na Jezalov obraz. Ne samo da je to potrdilo nekatere njegove stereotipe o kmečkem prebivalstvu ampak še bolj pomembno, vse zlatnike bo lahko pospravil zase. Po nekaj trenutkih je nastopaško stopil naprej in glasno rekel: ʺJaz grem rešiti vašo vnukinjo!ʺ Zazrl se je po množici, kjer je bilo končno malo več navdušenja in občudovanja, kar si je nedvomno zaslužil. Izkoristil je tudi priložnost in pomežiknil plavolasemu dekletu v množici.
 
-Martina je že švigala po belih strminah, ko je podpredsedniku končno postalo jasno. Pravzaprav mu je postalo jasno, ko so neznanci na hribu razobesili mogočno zastavo Zveze neodvisnih anarhistov - največje teroristične organizacije na svetu. Trenutek kasneje so razstrelili prvo eksplozivno telo. To je povzročilo manjši plaz, kmalu je sledila druga eksplozija malo nižje in plaz je bil malenkost večji. Sledila je serija eksplozij, za katero je divjal zdaj že mogočen plaz. Vmes, med naslednjo eksplozijo in pred plazom, pa je letela Martina. Niti malo se ji ni poznalo, da je zaključila kariero, ko je skoraj poetično iskala najhitrejšo pot na izredno zahtevnem pobočju Svaroga. Tokrat ni tekmovala z drugimi smučarkami, temveč s hitrostjo signala, ki je pošiljal ukaz naslednji bombi, naj jo raznese. Navkljub vsemu je bila vsakič bližje naslednji eksploziji.
+Ravno je mislil narediti še krajši govor o svojih izvrstnih mečevalnih sposobnostih in kako bo kot bi trenil rešil punčko zlobnega Oreiotha, ko je zraven priletel Franjo in z navdušenjem rekel: ʺUuuu, jaz tudi! Komaj čakam, da lahko od bližje spoznam rokodelstvo tega rotilca duhov mrtvih!ʺ
 
-Sedaj je bilo jasno, kam je plaz usmerjen. Naravnost proti hotelu, v katerem so bili nastanjeni praktično vsi voditelji sveta in noben varnostnik ali policist jih ni mogel zaščititi … razen Martine. 
+ʺNe bodi smešen,ʺ je rekel Jezal. ʺTo so nevarni posli, ti si pa mali in hitro zlomljiv.ʺ
 
-![policaj-bezi-pred-plazom.jpg](/assets/ilustracije/kratkeZgodbe/2019-06-20-policaj-bezi-pred-plazom.jpg)
+Franjo se je nasmehnil. ʺBrez skrbi, znam se postaviti zase. Vidiš ta kamen tukaj?ʺ je vprašal in pokazal na srednje velik kamen nedaleč stran. ʺTi bi si uničil meč, jaz pa z malo čarovnije ...ʺ nakar se je nakremžil, zamrmral nekaj besed in izbljunil lepljivo tekočino, ki se je prijela kamna, ta pa se je hitro raztopil.
 
-Plaz je bil za zdaj še majhen, vendar je z vsako eksplozijo postal bolj mogočen. V dolini bi brez dvoma v zgodovinske knjige odpihnil hotel z vsemi gosti. Martina je zdaj že prehitela eksplozije, samo dovolj hitro je rabila odsmučati do naslednje bombe, da bi iztrgala fluorescentno zeleno žičko in s tem prekinila detonacijo. 
+Ljudje so ostali brez besed, še Jezal ni točno vedel kako se naj odzove. Tišino je prekinil Helvur, ki je naznanil, da se odpravlja in da bo vesel vsakogar, ne glede na njegovo majhnost.
 
-Čisto blizu je že bila, ko je opazila, da je manjši del plazu zavil stran od glavnine in hrumel proti bližnji kmetiji. Na polju pred hišo je opazila majhnega otroka, ki se igra in gradi snežaka. Martina ni oklevala niti za trenutek. V smuku se je zapodila proti fantku. Bila je na robu svojih sposobnosti, ko je uhitela še manjši plaz. Brez ustavljanja je zagrabila fantka in ga čvrsto držala, medtem ko je odsmučala na varno.
+Trojica se je nato brez dodatnega obotavljanja odpravila na pot. Hodili so v tišini, Helvur jasno zaskrbljen, Jezal je v mislih že prešteval zlatnike, Franjo pa je pri sebi ponavljal vse kar je vedel o oživljenih mrtvih. Po slabi uri hoje so prišli do vhoda jame. Ob vhodu je bil v skalo izklesan pripis:
 
-Nekaj minut kasneje sta se oba tolažila s čokolado, ki jo je imela Martina pri sebi. Fantek je jokal, ko je videl, kako mu je plaz odnesel dom. Martina je razmišljala, kako je plaz, poleg vseh politikov najbrž odnesel tudi njeno kariero pri policiji.
+Pridi ne bližje,
+razen če kot usodo
+kugo grozno,
+ki mene muči, želiš!
+Graščak kopjaste pečine

@@ -1,56 +1,44 @@
 ---
 layout: post
-title:  "Policaj beži pred plazom"
-date:   2019-06-20
-categories: kratkeZgodbe
+title:  "11. poglavje - Leteče podgane"
+date:   2018-03-27
+categories: princiApokalipse
 ---
-“Kako za hudiča sem se znašla v tej situaciji?” se je vprašala Martina, ko je bežala pred ogromnim plazom. Ta gmota ni grozila zgolj njej, temveč naravi sami, svetovnemu miru in nenazadnje nedolžni mulariji.
+»Mislim, da se morava obrniti,« je rekel Franjo. To ni bilo prvič danes, niti v zadnje pol ure. Veslala sta že skoraj cel tretji dan. Z vsakim zamahom vesla je bil bolj prepričan, da bosta končala v Morju mečev. Srečala sta mnogo ribiških čolnov, ki so se vračali domov po dnevu ribolova. Nenavaden par na čolnu je presenetil mnogega izmed ribičev.
 
-Nekaj dni pred tem je Martina začela svojo pot kot policistka. Prej je sicer že bila zaposlena na policiji, vendar kot vrhunska športnica. Še slabo leto nazaj je v zrak dvignila svoj šesti zaporedni veliki kristalni globus Bila je, brez dvoma, na samem vrhu najboljših smučarjev in smučark vseh časov. Po daljšem dopustu, ki ji ga nihče ni zameril, se je odločila, da bo nadaljevala kariero kot policistka. Nadejala se je, da bo začela na smučišču in opozarjala mularijo, naj ne divjajo. Z razliko od belih strmin se ji tu ni vse izteklo po načrtih.
+»Hoj, popotnika,« je Franjev tok misli prekinil vzklik iz brega. »Kam jo pa vidva mahata?«
 
-Naneslo je, da se je srečanje voditeljev G20 najbogatejših držav ravno tiste dni odvijalo v Kranjski Gori. Za majhno Slovenijo je bil seveda tak dogodek izjemno zahteven. Martina je le dan prej dobila klic, da nujno potrebujejo vsakega prostega policista za varovanje srečanja. Čeprav naj bi na delo nastopila šele čez dober teden dni,  se je Martina vseeno odzvala. 
+»Malo po reki,« je previdno odgovoril Franjo, Jezal pa je nehal z veslanjem.
 
-Usodni dan se je začel zelo zgodaj. Ob pol štirih zjutraj je policijski avtobus, na katerem je bila tudi Martina, že peljal mimo Jesenic. Ob petih je bila na obrobju Kranjske Gore že postrojitev več sto slovenskih, italijanskih in avstrijskih policistov. Srečanje je bilo še posebej pomembno. Odločitve, ki naj bi jih sprejemali v naslednjih dneh, bodo zelo neposredno vplivale na prihodnost celotnega planeta. Okoljski problemi z začetka 21. stoletja so bili samo še prijetne spomladanske sanje v primerjavi s težavo, ki je nastala po “dogodku”. In kar je še hujše, vseh šest najmočnejših vladarjev sveta je imelo popolnoma navzkrižne poglede o celotni zadevi.
+Moški na bregu se je zasmejal. »Prav dolgo vajin izlet ne bo več trajal,« je nato rekel. »Sploh v tem čolnu vaju bo razlilo na Obali mečev,« je še dodal.
 
-Martina je stala pred hotelom, v katerem naj bi se popoldne kresala mnenja največjih in najpomembnejših. Toda še takšni veljaki so delovali zanemarljivi ob pogledu na Svaroga. Gora, prav tako posledica “dogodka”, je s svojim štiri tisoč metri vzbujala strahospoštovanje tudi med najpogumnejšimi alpinisti. Slovenci pai so bili hitro polni modrovanj, kako nizek je pravzaprav videti Veliki Klek.
+»Sva blizu obale?« je vprašal Jezal.
 
-“Pravijo, da če se v naslednjih dneh kaj zmenijo, ga v nekaj letih ne bo več,” ji je rekel kolega, ki je stal poleg nje in prav tako občudoval goro.
+»Prekleto blizu,« je odvrnil tujec med prižiganjem pipe.
 
-Martina ga je pogledala. Bil je mlajši fant, komaj dobro iz srednje šole. Končno se je dovolj umiril, da se je lahko z njo normalno pogovarjal. Ko ji je bil zjutraj dodeljen za partnerja, se je najprej vsaj pol ure tresel in jo prestrašeno gledal. Končno se je dovolj ojunačil, da jo je lahko prosil za eno skupno sliko.
+Jezal je zavzdihnil in začel obračati čoln. Veslanje proti toku je bilo bolj naporno. Ko sta se naslednji dan bližala Zmajevi Loki, je Jezal izgubil potrpljenje nad veslanjem. Roke so ga že grozno bolele in čutil je sovraštvo do reke, ki ju ni pripeljala nikamor. Nadaljevala sta peš. Loki sta se izognila, sta pa previdno šla do kraja, kjer sta pustila Shoalarja. Nista bila pretirano presenečena, ko sta našla samo nekaj vrvi, kjer sta ga privezala na drevo. Strinjala sta se, da je bolje, če se nikoli več ne srečajo. Pot ju je nato vodila po večjih in manjših poteh, a vselej blizu reke.
 
-“Vem, vsi pravijo, da je treba popraviti stanje,” je nadaljeval, “ampak res sem si želel s punco na Antarktiko. Pravijo, da ni boljšega dopustovanja nikjer na svetu.”
+Še en dan se je bližal koncu, Franjo in Jezal pa sta vedno bolj obupano ugotavljala, da nimata nobene dobre sledi. K sreči je ravno v tistem trenutku v dogajanje posegla usoda. Miren večer je presekal oster zvok ptičjega krokanja. V daljavi na nebu sta se jima bližali dve ptici. Na začetku sta majhni. Vendar sta Franjo in Jezal prav hitro ugotovila, da temu ni tako. Ptici sta bila ogromna krokarja. Tako velika, da je na vsakem jahal odrasel moški, oblečen v težak oklep. Nekaj časa sta previdno opazovala, kakšni so nameni jahačev, čeprav sta oba pri sebi pričakovala, da nič dobrega. Njuni dvomi so se hitro izkazali za upravičene, ko je proti njima poletelo več puščic.
 
-Pogovor se je nadaljeval podobno enostransko. Martina je občasno pokimala, medtem ko so se iz fanta usipala mnenja, razmišljanja in modrosti, kakršne premorejo samo najstniki.
-“Martina!” je s poveljajočim glasom žlobudranje prekinil načelnik. “Novo zadolžitev imam zate,” ji je rekel. 
+Vojaka na krokarjih sta bila sedaj bolj vidna, njuna mogočna oklepa sta se lesketala srebrno in zlato. Prav imenitno sta delovala, edino njuni ujedi sta kazili pogled. Slednji sta imeli izbuljene oči, grdo ukrivljen kljun in strupeno rdeče konice peres. Ti mogočni pojavi sta se hitro približevali robu gozda, kjer sta bila Franjo in Jezal. Vojaka sta se spogledala, pokimala drug drugemu ter pospravila loke. Sedaj sta bila pripravljena na bolj direkten napad. Skozi šlem pa na njuno žalost nista dobro videla svojih žrtev. Nista na primer videla, da je polovnjak izginil in da samo še večja tarča čaka na njun napad. Zagnala sta svoja ptiča proti Jezalu. Ta se je v zadnjem trenutku spretno vrgel vstran in prvi izmed ptičev se ni mogel dovolj hitro ustaviti. Z vso silo je treščil ob velik hrast, ki je zabobnel ob trku. Od mogočnega oklepa je ostala samo še zvita pločevina. Drugemu se je komaj uspelo izogniti trku. Zletel je nazaj v zrak in videl, kako je Jezal smuknil v gozd. Pristal je na poti in skupaj s ptičem sledil Jezalu v gozd.
 
-Načelnik je bil star okrog petdeset let, s kratko sivo brado ter skoraj brez las. Martino je spominjal na njenega prvega trenerja, ki jo je pred skoraj tremi desetletji prvič tekmovalno popeljal na snežne strmine. Kmalu ni bil več kos njenim talentom, a vedno ji je ostal pri srcu.
+Nekaj minut kasneje je prišel iz gozda Franjo. Nonšalantno si je obrisal še nekaj ostankov perja z rame. Sledil mu je Jezal.
 
-“Oziroma,” načelnikov glas je potihnil preden je nadaljeval, “v resnici bolj prošnjo.”
+»Očitno sva le nekomu stopila na prste,« je zadovoljno rekel Jezal. V roki je držal kos papirja, ki ga je vzel nesrečnemu jahaču. Na njem je bila skica Puščinjske doline. Približno na sredini je bil križec in ob njem pripisano Lahkoburni stolp.
 
-Martina je prikimala.
+»Zgleda, da res. Se ti kaj sanja kje bi lahko bil ta Lahkoburni stolp?« je vprašal Franjo.
+»Sanja se mi ne, a najbrž ga ne bo težko najti. Glede na njun oklep sta bogata viteza. Denarju ni težko slediti,« je z nasmeškom odvrnil Jezal.
 
-“Eden izmed višjih diplomatov je velik ljubitelj smučanja in si želi -” je začel načelnik.
+Jezalove besede so se izkazale za resnične. Naslednji dan nista potrebovala dolgo in domačini so ju hitro usmerili do Lahkoburnega stolpa. Ta je bil, prav tako kot njegovi prebivalci, videti prav veličastno. Dvigoval se je iz dna ozke ter visoke soteske. Planota na vrhu soteske je s širokim dvižnim mostom omogočala edini dostop do stolpa.
 
-Načelnik se je za trenutek ustavil, kot da mu bi bilo nerodno.. “No, želel je večerjo s teboj, a sem ga prepričal na panoramski oblet Svaroga v policijskem helikopterju.”
+Franjo je nejevoljno opazoval stolp. »Ni videti kakšnega drugega vhoda kot čez most,« je zaključil.
 
-Martina je skomignila z rameni. “Zakaj pa ne?” Ni bilo prvič, da bi imela opraviti z preveč navdušenimi oboževalci in polet v helikopterju je bil daleč od najbolj nenavadnih prošenj ali celo zahtev. Z nacionalizacijo firme Nike in ameriškim predsednikom v upravnem odboru so bila neprimerna povabila stvar vsakdana.
+»Zakaj pa ne vstopiva kar skozi glavni vhod,« je predlagal Jezal. »Sem prepričan, da bi vitezi morali takšen plemiški obisk z veseljem sprejeti,« je še dodal.
 
-Ni minilo pol ure in že je bila več tisoč metrov višje in nezainteresirano poslušala podpredsednika Andore, ki ji je na dolgo in široko razlagal, kako je dobil njene smuči. Prav s temi je baje osvojila svoj drugi veliki globus. Martina ni bila nikoli pretirano sentimentalna. Kljub temu je hlinila čustva do dveh kosov plastike.
+Franjo ni bil prepričan, če je Jezal samo pretirano samozavesten ali naiven. Vendar si je moral priznati, da o plemstvu, vitezih in protokolu, ki temu prtiče ni vedel prav veliko.
 
-Helikopter je že skoraj obletel goro, podpredsednik pa je še kar vztrajal pri svoji epski pripovedi. Martina je vedno bolj pogosto pogledovala skozo okno. Skoraj je že obrnila pogled nazaj, ko je nekje v snežni belini opazila premikajoče se točke. Bolj podrobno je pogledala. Na gori je bila tekom konference popolna prepoved alpinistov. Pomahala je načelniku in pilotu. Helikopter se je spustil bliže in res je bilo nekaj ljudi na gori, ampak se niso vzpenjali. Ko so opazili, da se jim približuje helikopter, so začeli hiteti. 
+In sta šla, naravnost do glavnega vhoda. Most je bil spuščen, a vrata zaprta. »Stoj tam! Kdo se približuje Lahkoburnemu stolpu?« je vprašal odločen ženski glas.
 
-Martina se je prva zavedela, kaj se dogaja. Preden so drugi razumeli, je že obula pancarje, ki jih je podpredsednik Andore kupil na neki dobrodelni dražbi.
+»Jezal dan Helder iz starodavne plemiške družine dan Helder,« je s svojim najpomembnejšim glasom naznanil Jezal.
 
-“Še nižje,” je zavpila pilotu, že s smučmi na nogah in pripravljena, da skoči iz helikopterja.
-
-Martina je že švigala po belih strminah, ko je podpredsedniku končno postalo jasno. Pravzaprav mu je postalo jasno, ko so neznanci na hribu razobesili mogočno zastavo Zveze neodvisnih anarhistov - največje teroristične organizacije na svetu. Trenutek kasneje so razstrelili prvo eksplozivno telo. To je povzročilo manjši plaz, kmalu je sledila druga eksplozija malo nižje in plaz je bil malenkost večji. Sledila je serija eksplozij, za katero je divjal zdaj že mogočen plaz. Vmes, med naslednjo eksplozijo in pred plazom, pa je letela Martina. Niti malo se ji ni poznalo, da je zaključila kariero, ko je skoraj poetično iskala najhitrejšo pot na izredno zahtevnem pobočju Svaroga. Tokrat ni tekmovala z drugimi smučarkami, temveč s hitrostjo signala, ki je pošiljal ukaz naslednji bombi, naj jo raznese. Navkljub vsemu je bila vsakič bližje naslednji eksploziji.
-
-Sedaj je bilo jasno, kam je plaz usmerjen. Naravnost proti hotelu, v katerem so bili nastanjeni praktično vsi voditelji sveta in noben varnostnik ali policist jih ni mogel zaščititi … razen Martine. 
-
-![policaj-bezi-pred-plazom.jpg](/assets/ilustracije/kratkeZgodbe/2019-06-20-policaj-bezi-pred-plazom.jpg)
-
-Plaz je bil za zdaj še majhen, vendar je z vsako eksplozijo postal bolj mogočen. V dolini bi brez dvoma v zgodovinske knjige odpihnil hotel z vsemi gosti. Martina je zdaj že prehitela eksplozije, samo dovolj hitro je rabila odsmučati do naslednje bombe, da bi iztrgala fluorescentno zeleno žičko in s tem prekinila detonacijo. 
-
-Čisto blizu je že bila, ko je opazila, da je manjši del plazu zavil stran od glavnine in hrumel proti bližnji kmetiji. Na polju pred hišo je opazila majhnega otroka, ki se igra in gradi snežaka. Martina ni oklevala niti za trenutek. V smuku se je zapodila proti fantku. Bila je na robu svojih sposobnosti, ko je uhitela še manjši plaz. Brez ustavljanja je zagrabila fantka in ga čvrsto držala, medtem ko je odsmučala na varno.
-
-Nekaj minut kasneje sta se oba tolažila s čokolado, ki jo je imela Martina pri sebi. Fantek je jokal, ko je videl, kako mu je plaz odnesel dom. Martina je razmišljala, kako je plaz, poleg vseh politikov najbrž odnesel tudi njeno kariero pri policiji.
+»Jaz sem pa Franjo,« je previdno in mnogo bolj potiho pripomnil Franjo, ki še zdaj ni verjel v Jezalov načrt. Čez nekaj trenutkov so se vrata odprla in ven je stopil nek vojščak. Ta je za trenutek postal na svojem mestu, nato pa je odkorakal čez most. Nekje na sredi mostu je postalo Franju jasno, da je vojščak v resnici vojščakinja. Bila je visoka, izpod čelade se ji je kazal občasen pramen zlatih las. Njen korak je bil izurjen, a vendar eleganten. Bila je oblečena v enak oklep, kot so ga imeli napadalci, v roki pa je nosila sulico. Ustavila se je za slabo dolžino sulice pred njima ter ju premerila. Franjo je opazil, da je še tesneje stisnila sulico v roki.

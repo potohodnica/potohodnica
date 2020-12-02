@@ -1,56 +1,28 @@
 ---
 layout: post
-title:  "Policaj beži pred plazom"
-date:   2019-06-20
-categories: kratkeZgodbe
+title:  "15. poglavje - Videz vara"
+date:   2018-08-03
+categories: princiApokalipse
 ---
-“Kako za hudiča sem se znašla v tej situaciji?” se je vprašala Martina, ko je bežala pred ogromnim plazom. Ta gmota ni grozila zgolj njej, temveč naravi sami, svetovnemu miru in nenazadnje nedolžni mulariji.
+Franjo je čutil pozno jesenski hlad, kako mu je prebadal tanka meniška oblačila. Ko sta z Jezalom prvič ozrla krčmo, se jima je zdela blizu, a zdaj sta hodila že skoraj pol ure, pa še nista prispela. Lažniv videz (občutek) bližine je dajala njena lokacija, na vrhu dvignjenega travnika ob poti. Tudi Jezal je že rahlo drgetal.
+»Še dobro, da sva naletela na to krčmo, res se mi ne bi dalo še z ognjem ukvarjati,« je rekel Jezal.
 
-Nekaj dni pred tem je Martina začela svojo pot kot policistka. Prej je sicer že bila zaposlena na policiji, vendar kot vrhunska športnica. Še slabo leto nazaj je v zrak dvignila svoj šesti zaporedni veliki kristalni globus Bila je, brez dvoma, na samem vrhu najboljših smučarjev in smučark vseh časov. Po daljšem dopustu, ki ji ga nihče ni zameril, se je odločila, da bo nadaljevala kariero kot policistka. Nadejala se je, da bo začela na smučišču in opozarjala mularijo, naj ne divjajo. Z razliko od belih strmin se ji tu ni vse izteklo po načrtih.
+»Upajva, da je odprta in da imajo kakšno prosto sobo,« je odvrnil vedno previdni Franjo.
+	
+Končno sta prispela do vrha travnika in luči v krčmi so delovale prav vabljivo. Kar malo z naporom sta odprla težka, debela vhodna vrata. Najprej ju je pozdravil vonj po sveže pečenem mesu in pivu, ki je preveval po celotni krčmi. V sredini je bila v kurišču žerjavica, nad katero se je pekel še skoraj cel odojek. Poleg tega je ogromno kurišče skrbelo za zelo prijetne temperature v jedilnici.
 
-Naneslo je, da se je srečanje voditeljev G20 najbogatejših držav ravno tiste dni odvijalo v Kranjski Gori. Za majhno Slovenijo je bil seveda tak dogodek izjemno zahteven. Martina je le dan prej dobila klic, da nujno potrebujejo vsakega prostega policista za varovanje srečanja. Čeprav naj bi na delo nastopila šele čez dober teden dni,  se je Martina vseeno odzvala. 
+»Pozdravljeni!« je naglas naznanil krčmar, ki je ravno stregel mizi blizu vrat. »Na pravi dan sta prispela. Danes pečemo odojka, gostov pa komaj kaj,« se je nasmejal in jima pomignil, naj se usedeta. »Smem ponuditi kračo in pivo?«
 
-Usodni dan se je začel zelo zgodaj. Ob pol štirih zjutraj je policijski avtobus, na katerem je bila tudi Martina, že peljal mimo Jesenic. Ob petih je bila na obrobju Kranjske Gore že postrojitev več sto slovenskih, italijanskih in avstrijskih policistov. Srečanje je bilo še posebej pomembno. Odločitve, ki naj bi jih sprejemali v naslednjih dneh, bodo zelo neposredno vplivale na prihodnost celotnega planeta. Okoljski problemi z začetka 21. stoletja so bili samo še prijetne spomladanske sanje v primerjavi s težavo, ki je nastala po “dogodku”. In kar je še hujše, vseh šest najmočnejših vladarjev sveta je imelo popolnoma navzkrižne poglede o celotni zadevi.
+Jezal in Franjo sta se spogledala z nasmehom in navdušeno prikimala. Kmalu je sledila prava mala pojedina. Med hrustanjem kožice in srkanjem piva sta Jezal in Franjo opazovala druge goste krčme. Kot je omenil tečaj, teh res ni bilo veliko. Starejši par, dva trgovska potnika in mlajši moški, ki je deloval rahlo bled in odmaknjen z mislimi. Vsi razen slednjega so delovali zelo zadovoljno in z užitkom jedli repete odojka, vključno z Jezalom in Franjem seveda.
 
-Martina je stala pred hotelom, v katerem naj bi se popoldne kresala mnenja največjih in najpomembnejših. Toda še takšni veljaki so delovali zanemarljivi ob pogledu na Svaroga. Gora, prav tako posledica “dogodka”, je s svojim štiri tisoč metri vzbujala strahospoštovanje tudi med najpogumnejšimi alpinisti. Slovenci pai so bili hitro polni modrovanj, kako nizek je pravzaprav videti Veliki Klek.
+Jezal se je že večkrat čudil mogočnemu apetitu njegovega majhnega kolega. Kljub temu, da ga je bilo več kot pol manj je nemalokrat pojedel več kot Jezal. Dvojni zajtrki so bili za Franja nekaj običajnega, kot so bile pozne večerje. Navkljub vsej hrani je Franjo še vedno skakal naokoli lahkih nog. Jezal je bil prepričan, da za tem stoji kakšen urok, a se mu nikoli ni zdel primeren trenutek, da bi vprašal. 
 
-“Pravijo, da če se v naslednjih dneh kaj zmenijo, ga v nekaj letih ne bo več,” ji je rekel kolega, ki je stal poleg nje in prav tako občudoval goro.
+Po večerji sta se zadovoljna in prijetno pijana odpravila spat. Oba sta takoj izginila v snu. Vendar te sanje niso bile prijetne. Jezal se je premetaval in težko dihal. Namesto, da bi globoko spal, se je ves čas zavedal, da je skoraj buden. Večkrat ga je tesnilo, nakar se je skoraj zbudil, a ne čisto. V polsnu je bil prepričan, da so stene okrog njega vedno bližje, da je na njegovih prsih težak balvan in da ima omrtvičene roke. Poskusil se je osredotočiti na roke, jih premakniti, a ni šlo.
 
-Martina ga je pogledala. Bil je mlajši fant, komaj dobro iz srednje šole. Končno se je dovolj umiril, da se je lahko z njo normalno pogovarjal. Ko ji je bil zjutraj dodeljen za partnerja, se je najprej vsaj pol ure tresel in jo prestrašeno gledal. Končno se je dovolj ojunačil, da jo je lahko prosil za eno skupno sliko.
+»Daj no, saj se ti je to že dogajalo. Minilo bo,« si je mrmral. Pa si je res? Najbrž ni niti odprl ust. Poskusil je zavpiti. Najbrž se ni zgodilo nič, sicer bi bil Franjo že pri njem. Vendar je imel občutek, da vseeno nekaj je pri njem. Toda to ni bil Franjo, neka temna stvar se je plazila okrog njegovih nog. Pogledal je proti nogam oz. vsaj zdelo se mu je tako. Ali vidi prav? Ne, ne more biti no! Dih mu je zastal, po hrbtu mu je šel hlad, kakršnega že dolgo ni čutil. Skoraj skočil je iz postelje, tokrat prepričan, da je buden. Pogledal je proti nogam, ves zasopel. Tam kjer je še trenutek prej videl grozodejstvo iz sanj, je bila zdaj samo še skrinja s posteljnino. Ozrl se je okrog sebe. Tema je bila, a ni mogel oceniti koliko je ura.
 
-“Vem, vsi pravijo, da je treba popraviti stanje,” je nadaljeval, “ampak res sem si želel s punco na Antarktiko. Pravijo, da ni boljšega dopustovanja nikjer na svetu.”
+»Franjo?« je potiho rekel, ko se mu je zazdela sosednja postelja sumljivo prazna. »Franjo!« je ponovil precej glasneje. Odgovora ni dobil. Še nekaj trenutkov je posedel v postelji in se umirjal. Sedaj je bil prepričan, da njegovega kolega ni v sobi. Manjkala je tudi Franjeva meniška halja, katero je vztrajno nosil povsod, razen v posteljo. 
 
-Pogovor se je nadaljeval podobno enostransko. Martina je občasno pokimala, medtem ko so se iz fanta usipala mnenja, razmišljanja in modrosti, kakršne premorejo samo najstniki.
-“Martina!” je s poveljajočim glasom žlobudranje prekinil načelnik. “Novo zadolžitev imam zate,” ji je rekel. 
+Jezal je splezal iz postelje, si nadel pulover in obul nogavice. Prijetna toplina, ki je prej prevevala krčmo je izginila, nadomestil jo je hladen piš, ki je prihajal izpod vrat sobe.  Jezalu se je zazdelo, da sliši tihe, a hitre korake, ki se smukajo na drugi strani vrat. Prisluhnil je. Tišina. Počakal je še nekaj trenutkov in nato previdno odprl vrata. Jedilnica krčme je bila prazna, le soj Lune jo je osvetljeval. Prostor se je zdel Jezalu popolnoma tuj in niti najmanj domačen in prijeten, kot se ga je spomnil izpred nekaj ur. Spet je zaslišal korake, vendar so se mu tokrat zdeli bolj rezki. Ne toliko noge kot da bi nekdo hodil s kovinskimi hoduljami, ali pa …  spomnil se je pošasti iz sanj in se zdrznil.
 
-Načelnik je bil star okrog petdeset let, s kratko sivo brado ter skoraj brez las. Martino je spominjal na njenega prvega trenerja, ki jo je pred skoraj tremi desetletji prvič tekmovalno popeljal na snežne strmine. Kmalu ni bil več kos njenim talentom, a vedno ji je ostal pri srcu.
-
-“Oziroma,” načelnikov glas je potihnil preden je nadaljeval, “v resnici bolj prošnjo.”
-
-Martina je prikimala.
-
-“Eden izmed višjih diplomatov je velik ljubitelj smučanja in si želi -” je začel načelnik.
-
-Načelnik se je za trenutek ustavil, kot da mu bi bilo nerodno.. “No, želel je večerjo s teboj, a sem ga prepričal na panoramski oblet Svaroga v policijskem helikopterju.”
-
-Martina je skomignila z rameni. “Zakaj pa ne?” Ni bilo prvič, da bi imela opraviti z preveč navdušenimi oboževalci in polet v helikopterju je bil daleč od najbolj nenavadnih prošenj ali celo zahtev. Z nacionalizacijo firme Nike in ameriškim predsednikom v upravnem odboru so bila neprimerna povabila stvar vsakdana.
-
-Ni minilo pol ure in že je bila več tisoč metrov višje in nezainteresirano poslušala podpredsednika Andore, ki ji je na dolgo in široko razlagal, kako je dobil njene smuči. Prav s temi je baje osvojila svoj drugi veliki globus. Martina ni bila nikoli pretirano sentimentalna. Kljub temu je hlinila čustva do dveh kosov plastike.
-
-Helikopter je že skoraj obletel goro, podpredsednik pa je še kar vztrajal pri svoji epski pripovedi. Martina je vedno bolj pogosto pogledovala skozo okno. Skoraj je že obrnila pogled nazaj, ko je nekje v snežni belini opazila premikajoče se točke. Bolj podrobno je pogledala. Na gori je bila tekom konference popolna prepoved alpinistov. Pomahala je načelniku in pilotu. Helikopter se je spustil bliže in res je bilo nekaj ljudi na gori, ampak se niso vzpenjali. Ko so opazili, da se jim približuje helikopter, so začeli hiteti. 
-
-Martina se je prva zavedela, kaj se dogaja. Preden so drugi razumeli, je že obula pancarje, ki jih je podpredsednik Andore kupil na neki dobrodelni dražbi.
-
-“Še nižje,” je zavpila pilotu, že s smučmi na nogah in pripravljena, da skoči iz helikopterja.
-
-Martina je že švigala po belih strminah, ko je podpredsedniku končno postalo jasno. Pravzaprav mu je postalo jasno, ko so neznanci na hribu razobesili mogočno zastavo Zveze neodvisnih anarhistov - največje teroristične organizacije na svetu. Trenutek kasneje so razstrelili prvo eksplozivno telo. To je povzročilo manjši plaz, kmalu je sledila druga eksplozija malo nižje in plaz je bil malenkost večji. Sledila je serija eksplozij, za katero je divjal zdaj že mogočen plaz. Vmes, med naslednjo eksplozijo in pred plazom, pa je letela Martina. Niti malo se ji ni poznalo, da je zaključila kariero, ko je skoraj poetično iskala najhitrejšo pot na izredno zahtevnem pobočju Svaroga. Tokrat ni tekmovala z drugimi smučarkami, temveč s hitrostjo signala, ki je pošiljal ukaz naslednji bombi, naj jo raznese. Navkljub vsemu je bila vsakič bližje naslednji eksploziji.
-
-Sedaj je bilo jasno, kam je plaz usmerjen. Naravnost proti hotelu, v katerem so bili nastanjeni praktično vsi voditelji sveta in noben varnostnik ali policist jih ni mogel zaščititi … razen Martine. 
-
-![policaj-bezi-pred-plazom.jpg](/assets/ilustracije/kratkeZgodbe/2019-06-20-policaj-bezi-pred-plazom.jpg)
-
-Plaz je bil za zdaj še majhen, vendar je z vsako eksplozijo postal bolj mogočen. V dolini bi brez dvoma v zgodovinske knjige odpihnil hotel z vsemi gosti. Martina je zdaj že prehitela eksplozije, samo dovolj hitro je rabila odsmučati do naslednje bombe, da bi iztrgala fluorescentno zeleno žičko in s tem prekinila detonacijo. 
-
-Čisto blizu je že bila, ko je opazila, da je manjši del plazu zavil stran od glavnine in hrumel proti bližnji kmetiji. Na polju pred hišo je opazila majhnega otroka, ki se igra in gradi snežaka. Martina ni oklevala niti za trenutek. V smuku se je zapodila proti fantku. Bila je na robu svojih sposobnosti, ko je uhitela še manjši plaz. Brez ustavljanja je zagrabila fantka in ga čvrsto držala, medtem ko je odsmučala na varno.
-
-Nekaj minut kasneje sta se oba tolažila s čokolado, ki jo je imela Martina pri sebi. Fantek je jokal, ko je videl, kako mu je plaz odnesel dom. Martina je razmišljala, kako je plaz, poleg vseh politikov najbrž odnesel tudi njeno kariero pri policiji.
+Ravno je hotel stopiti iz sobe, ko je v kotu jedilnice opazil Franja, klečečega pri pultu. Tudi Franjo ga je opazil in mu začel mahati, naj ostane tam kjer je. V tistem se odprejo vrata kuhinje in Jezal je videl, kaj je povzročalo zvok, ki ga je spominjal na kovinske hodulje. 

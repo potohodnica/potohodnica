@@ -1,56 +1,161 @@
 ---
 layout: post
-title:  "Policaj beži pred plazom"
-date:   2019-06-20
-categories: kratkeZgodbe
+title:  "7. poglavje - Plesoči kamni"
+date:   2018-02-26
+categories: princiApokalipse
 ---
-“Kako za hudiča sem se znašla v tej situaciji?” se je vprašala Martina, ko je bežala pred ogromnim plazom. Ta gmota ni grozila zgolj njej, temveč naravi sami, svetovnemu miru in nenazadnje nedolžni mulariji.
+Brez obotavljanja sta Franjo in Jezal smuknila skozi okno iz stražnikove pisarne in se previdno potikala med grmičevjem in hišami. Pazila sta, da ju ne bi kdo opazil, medtem ko je skoraj celotna vas prihitela do novonastale luknje, kjer je bilo pred kratkim križišče dveh pomembnih popotniških cest. Ko sta bila dovolj daleč od stražarnice in sta imela občutek, da nista več sumljiva, sta stopila na uličico in pohitela do križišča. 
 
-Nekaj dni pred tem je Martina začela svojo pot kot policistka. Prej je sicer že bila zaposlena na policiji, vendar kot vrhunska športnica. Še slabo leto nazaj je v zrak dvignila svoj šesti zaporedni veliki kristalni globus Bila je, brez dvoma, na samem vrhu najboljših smučarjev in smučark vseh časov. Po daljšem dopustu, ki ji ga nihče ni zameril, se je odločila, da bo nadaljevala kariero kot policistka. Nadejala se je, da bo začela na smučišču in opozarjala mularijo, naj ne divjajo. Z razliko od belih strmin se ji tu ni vse izteklo po načrtih.
+Okrog luknje je bila sedaj zbrana že precejšnja množica. Nekateri so zaskrbljeno gledali, slišati je bilo tudi nekaj obupanih pripomb, da je mesto zdaj zares propadlo. Jezal se je prerinil do roba, kjer je zaradi množice skoraj padel v luknjo, a se je uspel zadržati na robu. Jama je bila globoka slabih dvajset metrov. Na dnu sta bila dva tunela, ki sta vodila v različni smeri.
 
-Naneslo je, da se je srečanje voditeljev G20 najbogatejših držav ravno tiste dni odvijalo v Kranjski Gori. Za majhno Slovenijo je bil seveda tak dogodek izjemno zahteven. Martina je le dan prej dobila klic, da nujno potrebujejo vsakega prostega policista za varovanje srečanja. Čeprav naj bi na delo nastopila šele čez dober teden dni,  se je Martina vseeno odzvala. 
+ʺZgleda, da se je podrl strop podzemne dvorane,ʺ je Jezal rekel Franju, ko se je tudi on prerinil ta roba.
 
-Usodni dan se je začel zelo zgodaj. Ob pol štirih zjutraj je policijski avtobus, na katerem je bila tudi Martina, že peljal mimo Jesenic. Ob petih je bila na obrobju Kranjske Gore že postrojitev več sto slovenskih, italijanskih in avstrijskih policistov. Srečanje je bilo še posebej pomembno. Odločitve, ki naj bi jih sprejemali v naslednjih dneh, bodo zelo neposredno vplivale na prihodnost celotnega planeta. Okoljski problemi z začetka 21. stoletja so bili samo še prijetne spomladanske sanje v primerjavi s težavo, ki je nastala po “dogodku”. In kar je še hujše, vseh šest najmočnejših vladarjev sveta je imelo popolnoma navzkrižne poglede o celotni zadevi.
+ʺZanimivo, na prvi pogled mi deluje škratovske izdelave. Oni naj bi tukaj pred stoletji imeli svoje rove,ʺ je razmišljujoče pripomnil Franjo.
 
-Martina je stala pred hotelom, v katerem naj bi se popoldne kresala mnenja največjih in najpomembnejših. Toda še takšni veljaki so delovali zanemarljivi ob pogledu na Svaroga. Gora, prav tako posledica “dogodka”, je s svojim štiri tisoč metri vzbujala strahospoštovanje tudi med najpogumnejšimi alpinisti. Slovenci pai so bili hitro polni modrovanj, kako nizek je pravzaprav videti Veliki Klek.
+Kot od nikoder, so se v množici naenkrat znašli stražnik, župan in drugi lokalni pomembneži ter začeli vztrajati, da se morajo ljudje umakniti od roba. Po nekaj negodovanja jim je uspelo razpršiti množico.
 
-“Pravijo, da če se v naslednjih dneh kaj zmenijo, ga v nekaj letih ne bo več,” ji je rekel kolega, ki je stal poleg nje in prav tako občudoval goro.
+ʺSe ti je to zdelo malo sumljivo?ʺ je Franjo vprašal Jezala, ko sta se vračala v krčmo.
 
-Martina ga je pogledala. Bil je mlajši fant, komaj dobro iz srednje šole. Končno se je dovolj umiril, da se je lahko z njo normalno pogovarjal. Ko ji je bil zjutraj dodeljen za partnerja, se je najprej vsaj pol ure tresel in jo prestrašeno gledal. Končno se je dovolj ojunačil, da jo je lahko prosil za eno skupno sliko.
+ʺNe samo malo,ʺ mu je z nasmehom odvrnil Jezal in še pripomnil: ʺNoč je še mlada.ʺ
 
-“Vem, vsi pravijo, da je treba popraviti stanje,” je nadaljeval, “ampak res sem si želel s punco na Antarktiko. Pravijo, da ni boljšega dopustovanja nikjer na svetu.”
+Franjo ni odgovoril, a oba sta vedela, da morata raziskati rove. Ni minila ura, ko sta iz svojega skrivališča videla, kako je tudi stražnik odšel in tišina je spet prežela mestece. Hitro sta skočila izza kupa sena, navezala vrv na bližnje drevo in že sta se spuščala v jamo.
 
-Pogovor se je nadaljeval podobno enostransko. Martina je občasno pokimala, medtem ko so se iz fanta usipala mnenja, razmišljanja in modrosti, kakršne premorejo samo najstniki.
-“Martina!” je s poveljajočim glasom žlobudranje prekinil načelnik. “Novo zadolžitev imam zate,” ji je rekel. 
+ʺKam pa zdaj?ʺ je vprašal Jezal, ko sta na dnu jame strmela v dva rova.
 
-Načelnik je bil star okrog petdeset let, s kratko sivo brado ter skoraj brez las. Martino je spominjal na njenega prvega trenerja, ki jo je pred skoraj tremi desetletji prvič tekmovalno popeljal na snežne strmine. Kmalu ni bil več kos njenim talentom, a vedno ji je ostal pri srcu.
+ʺJaz bi šel v desnega, ki se spušča,ʺ je predlagal Franjo. ʺLevi najbrž pelje do pravega vhoda v podzemlje.
 
-“Oziroma,” načelnikov glas je potihnil preden je nadaljeval, “v resnici bolj prošnjo.”
+Jezal se je strinjal in brez oklevanja stopil v desni rov.
 
-Martina je prikimala.
+Rov je bil narejen tako, da se je skoraj neopazno spuščal. V stene so bili izklesani reliefi škratov, ki so pogumno gledali v daljavo. Sicer so bili škratje skoraj enaki, a prav vsak se je malenkostno razlikoval od naslednjega. Nekateri so imeli mogočne brade, drugi so nosili velike sekire, spet tretji so bili oblečeni kot tanki v svojih debelih oklepih. Rov se je končno izravnal in na koncu so bila priprta kamnita vrata.
 
-“Eden izmed višjih diplomatov je velik ljubitelj smučanja in si želi -” je začel načelnik.
+Jezal je previdno povlekel za jeklene obročke, ki so bili v vratih namesto kljuk, in vrata so se tiho odprla. Za vrati se je pot spet razcepila. En rov je vodil naravnost naprej, drug, ožji, pa desno navzgor. Jezal in Franjo sta se zazrla najprej v en, nato v drug rov. Jezal je skomignil in pokazal v rov naravnost. Franjo pa odkimal in pokazal na strop tega rova. Tik pod stropom so visele jeklene kletke in zlovešče nihale, kot da bi bile vsak trenutek pripravljene ujeti nepozorne pohodnike.
 
-Načelnik se je za trenutek ustavil, kot da mu bi bilo nerodno.. “No, želel je večerjo s teboj, a sem ga prepričal na panoramski oblet Svaroga v policijskem helikopterju.”
+ʺDobro si to opazil,ʺ je skozi stisnjene zobe pripomnil Jezal, ki ga je bilo prav sram, da sam tega ni videl.
 
-Martina je skomignila z rameni. “Zakaj pa ne?” Ni bilo prvič, da bi imela opraviti z preveč navdušenimi oboževalci in polet v helikopterju je bil daleč od najbolj nenavadnih prošenj ali celo zahtev. Z nacionalizacijo firme Nike in ameriškim predsednikom v upravnem odboru so bila neprimerna povabila stvar vsakdana.
+ʺPrednost nižje perspektive,ʺ  je z nasmehom odvrnil Franjo.
 
-Ni minilo pol ure in že je bila več tisoč metrov višje in nezainteresirano poslušala podpredsednika Andore, ki ji je na dolgo in široko razlagal, kako je dobil njene smuči. Prav s temi je baje osvojila svoj drugi veliki globus. Martina ni bila nikoli pretirano sentimentalna. Kljub temu je hlinila čustva do dveh kosov plastike.
+Po temeljitem pregledu manjšega rova, za kakšne pasti, sta nadaljevala v tej smeri. Kmalu je rov začel neprijetno smrdeti, vonj pa se je z vsakim korakom samo še stopnjeval. Smrad je hitro postal komaj vzdržen in brez dvoma je bil to vonj po smrti, po trohnečih truplih. Rov se je razširil v manjšo sobico, kjer je Jezala in Franja čakal res ogaben prizor. 
 
-Helikopter je že skoraj obletel goro, podpredsednik pa je še kar vztrajal pri svoji epski pripovedi. Martina je vedno bolj pogosto pogledovala skozo okno. Skoraj je že obrnila pogled nazaj, ko je nekje v snežni belini opazila premikajoče se točke. Bolj podrobno je pogledala. Na gori je bila tekom konference popolna prepoved alpinistov. Pomahala je načelniku in pilotu. Helikopter se je spustil bliže in res je bilo nekaj ljudi na gori, ampak se niso vzpenjali. Ko so opazili, da se jim približuje helikopter, so začeli hiteti. 
+V kotu sobice so bila na tleh tri trupla, nad njimi pa je gomazelo več podgan, vsaka velika kot manjši pes. Na prišleka se niso ozirale, ampak še naprej trgale meso in lomile kosti na nesrečnikih, ki so nekako pristali tu. V vsaj nekakšno olajšanje Franju in Jezalu je bilo, da nobeno od trupel ni bilo videti, kot da pripada otroku. Hitro sta šla mimo podgan naprej v rov.
 
-Martina se je prva zavedela, kaj se dogaja. Preden so drugi razumeli, je že obula pancarje, ki jih je podpredsednik Andore kupil na neki dobrodelni dražbi.
+Po nekaj minutah hoje sta prišla do nove sobe. Samo trenutek nepazljivosti je bil kriv, da sta se kar naenkrat znašla pred več kot dva metra visokim, zelenkastim polorkom. K sreči je bil on prav tako presenečen in zmeden. 
 
-“Še nižje,” je zavpila pilotu, že s smučmi na nogah in pripravljena, da skoči iz helikopterja.
+ʺKdo sta pa vidva? Ne bi smela biti tukaj!ʺ je po krajšem oklevanju rekel. 
 
-Martina je že švigala po belih strminah, ko je podpredsedniku končno postalo jasno. Pravzaprav mu je postalo jasno, ko so neznanci na hribu razobesili mogočno zastavo Zveze neodvisnih anarhistov - največje teroristične organizacije na svetu. Trenutek kasneje so razstrelili prvo eksplozivno telo. To je povzročilo manjši plaz, kmalu je sledila druga eksplozija malo nižje in plaz je bil malenkost večji. Sledila je serija eksplozij, za katero je divjal zdaj že mogočen plaz. Vmes, med naslednjo eksplozijo in pred plazom, pa je letela Martina. Niti malo se ji ni poznalo, da je zaključila kariero, ko je skoraj poetično iskala najhitrejšo pot na izredno zahtevnem pobočju Svaroga. Tokrat ni tekmovala z drugimi smučarkami, temveč s hitrostjo signala, ki je pošiljal ukaz naslednji bombi, naj jo raznese. Navkljub vsemu je bila vsakič bližje naslednji eksploziji.
+ʺMidva? Kaj ti tukaj?!ʺ je samozavestno nastopil Jezal. ʺ Zgoraj bi moral biti že pred pol ure!ʺ
 
-Sedaj je bilo jasno, kam je plaz usmerjen. Naravnost proti hotelu, v katerem so bili nastanjeni praktično vsi voditelji sveta in noben varnostnik ali policist jih ni mogel zaščititi … razen Martine. 
+ʺKaj? Ne razumem. Kdo je to rekel?ʺ je zmedeno odgovoril polork. 
 
-![policaj-bezi-pred-plazom.jpg](/assets/ilustracije/kratkeZgodbe/2019-06-20-policaj-bezi-pred-plazom.jpg)
+Jezal se ni pustil motiti. ʺNič kaj, kaj! Čakajo te! Dobro veš kdo, kaj se sprenevedaš. Pojdi, preden se vznejevoljijo.ʺ
 
-Plaz je bil za zdaj še majhen, vendar je z vsako eksplozijo postal bolj mogočen. V dolini bi brez dvoma v zgodovinske knjige odpihnil hotel z vsemi gosti. Martina je zdaj že prehitela eksplozije, samo dovolj hitro je rabila odsmučati do naslednje bombe, da bi iztrgala fluorescentno zeleno žičko in s tem prekinila detonacijo. 
+ʺKaj se, preden se kaj ...?ʺ je popolnoma izgubljeno spraševal polork, medtem ko je že hitro hodil nazaj proti izhodu.
 
-Čisto blizu je že bila, ko je opazila, da je manjši del plazu zavil stran od glavnine in hrumel proti bližnji kmetiji. Na polju pred hišo je opazila majhnega otroka, ki se igra in gradi snežaka. Martina ni oklevala niti za trenutek. V smuku se je zapodila proti fantku. Bila je na robu svojih sposobnosti, ko je uhitela še manjši plaz. Brez ustavljanja je zagrabila fantka in ga čvrsto držala, medtem ko je odsmučala na varno.
+Potem, ko je odšel, sta se lahko Franjo in Jezal mirno razgledala po sobi. V enem kotu je bila žimnica, nekaj orožja in oklep. Na nasprotni steni je bila majhna lina, skozi katero je bilo moč videti v hodnik s pastjo, poleg line pa je bila veriga, navezana na mehanizem. V drugem kotu je bil večji kup kamenja, ki na prvi pogled ni deloval posebej zanimivo, dokler se ni začel oglašati. Franjo je prihitel in ugotovil, da se pod kamenjem skriva majhno bitje. Z Jezalovo pomočjo sta se dokopala do majhne punčke, ki je bila vsa pretepena in nebogljena.
 
-Nekaj minut kasneje sta se oba tolažila s čokolado, ki jo je imela Martina pri sebi. Fantek je jokal, ko je videl, kako mu je plaz odnesel dom. Martina je razmišljala, kako je plaz, poleg vseh politikov najbrž odnesel tudi njeno kariero pri policiji.
+Franjo je punčko stisnil k sebi in jo začel miriti.
+
+ʺJe tvoj dedek Helvur?ʺ je vprašal Jezal previdno.
+
+Punčka je zgolj pokimala. Franjo ji je dal nekaj vode in malo hrane, tako da si je vsaj malo opomogla. Temu je sledil napoj zdravja, ki je vrnil nekaj rdečice v bleda lica.
+
+ʺKaj se je zgodilo?ʺ je naprej vprašal Jezal, medtem ko je drgnil z zobmi zaradi jeze in ogorčenosti nad barbari, ki počno takšne stvari otrokom.
+
+ʺZvečer, sredi spanca so me odnesli. Najprej nisem vedela kdo, ampak potem sem prepoznala stražnikov glas. Grozil mi, da ne bom nikoli več prišla od tukaj. Sploh nek grozni čarovnik,ʺ je dodala med občasnim hlipanjem.
+
+ʺZdaj je vse v redu, na varnem si,ʺ jo je miril Franjo.
+
+ʺKje je ta čarovnik? V tej jami?ʺ je bil neumoren Jezal.
+Punčka je nežno prikimala. ʺSkozi ta rov, ni daleč. Občasno so me peljali tja, da bi me ustrahovali. Nisem se dala, vem da dedi ne bi hotel, da se bojim.ʺ
+
+ʺGreva do tega čarovnika?ʺ je vprašal Jezal.
+
+ʺPo premisleku sta sklenila, da je najboljše tako, preden ima priložnost za pobeg.
+
+ʺNajboljše, da gre zraven. Če jo tu pustiva, se lahko kdo vrne,ʺ je razmišljal Franjo. 
+
+ʺSe strinjam,ʺ je pripomnil Jezal in še dodal: ʺKar koli se zgodi, ostani za menoj ali Franjem. Tako boš varna.ʺ
+
+Previdno so nadaljevali po rovu, ki se je spet pridružil tistemu, v katerem so bile kletke. Zavili so desno in kmalu prišli do ogromne podzemne sobane, kjer jih je čakal res neverjeten prizor. V sobani je bilo vsaj dvajset velikih balvanov, večinoma črnih, ki so lebdeli slabega pol metra nad tlemi. Nekaj jih je oblikovalo preproste vzorce, drugi so bili bolj osamelci.
+
+Izza enega izmed balvanov se je prikazal človek, oblečen v, vsaj na pogled, izredno razkošne čarovniške obleke. Punčka, ki se je skrivala za Franjem, je zaihtela takoj, ko ga je opazila. Za Jezala je bilo to dovolj. Zagrabil je svoj lok in že v naslednjem trenutku ustrelil proti čarovniku. Slednji se je šele obrnil proti obiskovalcem, ko ga je puščica zadela v desno ramo, on pa je zavpil od bolečine. Klecnil je na koleno in sklenil roke.
+
+Jezal je zagrabil svoj rapir in se zagnal proti čarovniku, a ni prišel daleč. Zemlja se je začela tresti in Jezal je dobil občutek, da ga je nekdo udaril z macolo. Hkrati je zagrmel zrak okrog njega, kot da bi se znašel v središču nevihte. Poletel je na tla s takšno silo, da se je ugreznil v zemljo. Nekaj trenutkov je rabil, a se je iz čiste jeze in trme vrnil na noge in pohitel za čarovnikom, ki je bil sedaj že na drugi strani sobane in je odpiral skrivni vhod v skali. Jezal je bil samo nekaj korakov za njim, ko se je rov, v katerega je čarovnik izginil, podrl in Jezal se je komaj izognil padajočemu kamenju. Jezno je obstal pri rovu in ocenjeval, kako hitro lahko odkoplje kamenje, ko je zaslišal obupan klic Franja.
+
+Pritekel je nazaj, z mislimi še vedno pri čarovniku, ki mu je ušel, ko je opazil Franja, kako čepi pri deklici. Ta je negibno ležala na tleh, zemlja okrog nje je bila razpokana. Tudi sam je pokleknil zraven nje, jo prijel za roko in začutil, da v njej ni več življenja. Jezal in Franjo sta se spogledala, oba je hkrati prevevala jeza in nemoč.Brez obotavljanja sta Franjo in Jezal smuknila skozi okno iz stražnikove pisarne in se previdno potikala med grmičevjem in hišami. Pazila sta, da ju ne bi kdo opazil, medtem ko je skoraj celotna vas prihitela do novonastale luknje, kjer je bilo pred kratkim križišče dveh pomembnih popotniških cest. Ko sta bila dovolj daleč od stražarnice in sta imela občutek, da nista več sumljiva, sta stopila na uličico in pohitela do križišča. 
+
+Okrog luknje je bila sedaj zbrana že precejšnja množica. Nekateri so zaskrbljeno gledali, slišati je bilo tudi nekaj obupanih pripomb, da je mesto zdaj zares propadlo. Jezal se je prerinil do roba, kjer je zaradi množice skoraj padel v luknjo, a se je uspel zadržati na robu. Jama je bila globoka slabih dvajset metrov. Na dnu sta bila dva tunela, ki sta vodila v različni smeri.
+
+ʺZgleda, da se je podrl strop podzemne dvorane,ʺ je Jezal rekel Franju, ko se je tudi on prerinil ta roba.
+
+ʺZanimivo, na prvi pogled mi deluje škratovske izdelave. Oni naj bi tukaj pred stoletji imeli svoje rove,ʺ je razmišljujoče pripomnil Franjo.
+
+Kot od nikoder, so se v množici naenkrat znašli stražnik, župan in drugi lokalni pomembneži ter začeli vztrajati, da se morajo ljudje umakniti od roba. Po nekaj negodovanja jim je uspelo razpršiti množico.
+
+ʺSe ti je to zdelo malo sumljivo?ʺ je Franjo vprašal Jezala, ko sta se vračala v krčmo.
+
+ʺNe samo malo,ʺ mu je z nasmehom odvrnil Jezal in še pripomnil: ʺNoč je še mlada.ʺ
+
+Franjo ni odgovoril, a oba sta vedela, da morata raziskati rove. Ni minila ura, ko sta iz svojega skrivališča videla, kako je tudi stražnik odšel in tišina je spet prežela mestece. Hitro sta skočila izza kupa sena, navezala vrv na bližnje drevo in že sta se spuščala v jamo.
+
+ʺKam pa zdaj?ʺ je vprašal Jezal, ko sta na dnu jame strmela v dva rova.
+
+ʺJaz bi šel v desnega, ki se spušča,ʺ je predlagal Franjo. ʺLevi najbrž pelje do pravega vhoda v podzemlje.
+
+Jezal se je strinjal in brez oklevanja stopil v desni rov.
+
+Rov je bil narejen tako, da se je skoraj neopazno spuščal. V stene so bili izklesani reliefi škratov, ki so pogumno gledali v daljavo. Sicer so bili škratje skoraj enaki, a prav vsak se je malenkostno razlikoval od naslednjega. Nekateri so imeli mogočne brade, drugi so nosili velike sekire, spet tretji so bili oblečeni kot tanki v svojih debelih oklepih. Rov se je končno izravnal in na koncu so bila priprta kamnita vrata.
+
+Jezal je previdno povlekel za jeklene obročke, ki so bili v vratih namesto kljuk, in vrata so se tiho odprla. Za vrati se je pot spet razcepila. En rov je vodil naravnost naprej, drug, ožji, pa desno navzgor. Jezal in Franjo sta se zazrla najprej v en, nato v drug rov. Jezal je skomignil in pokazal v rov naravnost. Franjo pa odkimal in pokazal na strop tega rova. Tik pod stropom so visele jeklene kletke in zlovešče nihale, kot da bi bile vsak trenutek pripravljene ujeti nepozorne pohodnike.
+
+ʺDobro si to opazil,ʺ je skozi stisnjene zobe pripomnil Jezal, ki ga je bilo prav sram, da sam tega ni videl.
+
+ʺPrednost nižje perspektive,ʺ  je z nasmehom odvrnil Franjo.
+
+Po temeljitem pregledu manjšega rova, za kakšne pasti, sta nadaljevala v tej smeri. Kmalu je rov začel neprijetno smrdeti, vonj pa se je z vsakim korakom samo še stopnjeval. Smrad je hitro postal komaj vzdržen in brez dvoma je bil to vonj po smrti, po trohnečih truplih. Rov se je razširil v manjšo sobico, kjer je Jezala in Franja čakal res ogaben prizor. 
+
+V kotu sobice so bila na tleh tri trupla, nad njimi pa je gomazelo več podgan, vsaka velika kot manjši pes. Na prišleka se niso ozirale, ampak še naprej trgale meso in lomile kosti na nesrečnikih, ki so nekako pristali tu. V vsaj nekakšno olajšanje Franju in Jezalu je bilo, da nobeno od trupel ni bilo videti, kot da pripada otroku. Hitro sta šla mimo podgan naprej v rov.
+
+Po nekaj minutah hoje sta prišla do nove sobe. Samo trenutek nepazljivosti je bil kriv, da sta se kar naenkrat znašla pred več kot dva metra visokim, zelenkastim polorkom. K sreči je bil on prav tako presenečen in zmeden. 
+
+ʺKdo sta pa vidva? Ne bi smela biti tukaj!ʺ je po krajšem oklevanju rekel. 
+
+ʺMidva? Kaj ti tukaj?!ʺ je samozavestno nastopil Jezal. ʺ Zgoraj bi moral biti že pred pol ure!ʺ
+
+ʺKaj? Ne razumem. Kdo je to rekel?ʺ je zmedeno odgovoril polork. 
+
+Jezal se ni pustil motiti. ʺNič kaj, kaj! Čakajo te! Dobro veš kdo, kaj se sprenevedaš. Pojdi, preden se vznejevoljijo.ʺ
+
+ʺKaj se, preden se kaj ...?ʺ je popolnoma izgubljeno spraševal polork, medtem ko je že hitro hodil nazaj proti izhodu.
+
+Potem, ko je odšel, sta se lahko Franjo in Jezal mirno razgledala po sobi. V enem kotu je bila žimnica, nekaj orožja in oklep. Na nasprotni steni je bila majhna lina, skozi katero je bilo moč videti v hodnik s pastjo, poleg line pa je bila veriga, navezana na mehanizem. V drugem kotu je bil večji kup kamenja, ki na prvi pogled ni deloval posebej zanimivo, dokler se ni začel oglašati. Franjo je prihitel in ugotovil, da se pod kamenjem skriva majhno bitje. Z Jezalovo pomočjo sta se dokopala do majhne punčke, ki je bila vsa pretepena in nebogljena.
+
+Franjo je punčko stisnil k sebi in jo začel miriti.
+
+ʺJe tvoj dedek Helvur?ʺ je vprašal Jezal previdno.
+
+Punčka je zgolj pokimala. Franjo ji je dal nekaj vode in malo hrane, tako da si je vsaj malo opomogla. Temu je sledil napoj zdravja, ki je vrnil nekaj rdečice v bleda lica.
+
+ʺKaj se je zgodilo?ʺ je naprej vprašal Jezal, medtem ko je drgnil z zobmi zaradi jeze in ogorčenosti nad barbari, ki počno takšne stvari otrokom.
+
+ʺZvečer, sredi spanca so me odnesli. Najprej nisem vedela kdo, ampak potem sem prepoznala stražnikov glas. Grozil mi, da ne bom nikoli več prišla od tukaj. Sploh nek grozni čarovnik,ʺ je dodala med občasnim hlipanjem.
+
+ʺZdaj je vse v redu, na varnem si,ʺ jo je miril Franjo.
+
+ʺKje je ta čarovnik? V tej jami?ʺ je bil neumoren Jezal.
+Punčka je nežno prikimala. ʺSkozi ta rov, ni daleč. Občasno so me peljali tja, da bi me ustrahovali. Nisem se dala, vem da dedi ne bi hotel, da se bojim.ʺ
+
+ʺGreva do tega čarovnika?ʺ je vprašal Jezal.
+
+ʺPo premisleku sta sklenila, da je najboljše tako, preden ima priložnost za pobeg.
+
+ʺNajboljše, da gre zraven. Če jo tu pustiva, se lahko kdo vrne,ʺ je razmišljal Franjo. 
+
+ʺSe strinjam,ʺ je pripomnil Jezal in še dodal: ʺKar koli se zgodi, ostani za menoj ali Franjem. Tako boš varna.ʺ
+
+Previdno so nadaljevali po rovu, ki se je spet pridružil tistemu, v katerem so bile kletke. Zavili so desno in kmalu prišli do ogromne podzemne sobane, kjer jih je čakal res neverjeten prizor. V sobani je bilo vsaj dvajset velikih balvanov, večinoma črnih, ki so lebdeli slabega pol metra nad tlemi. Nekaj jih je oblikovalo preproste vzorce, drugi so bili bolj osamelci.
+
+Izza enega izmed balvanov se je prikazal človek, oblečen v, vsaj na pogled, izredno razkošne čarovniške obleke. Punčka, ki se je skrivala za Franjem, je zaihtela takoj, ko ga je opazila. Za Jezala je bilo to dovolj. Zagrabil je svoj lok in že v naslednjem trenutku ustrelil proti čarovniku. Slednji se je šele obrnil proti obiskovalcem, ko ga je puščica zadela v desno ramo, on pa je zavpil od bolečine. Klecnil je na koleno in sklenil roke.
+
+Jezal je zagrabil svoj rapir in se zagnal proti čarovniku, a ni prišel daleč. Zemlja se je začela tresti in Jezal je dobil občutek, da ga je nekdo udaril z macolo. Hkrati je zagrmel zrak okrog njega, kot da bi se znašel v središču nevihte. Poletel je na tla s takšno silo, da se je ugreznil v zemljo. Nekaj trenutkov je rabil, a se je iz čiste jeze in trme vrnil na noge in pohitel za čarovnikom, ki je bil sedaj že na drugi strani sobane in je odpiral skrivni vhod v skali. Jezal je bil samo nekaj korakov za njim, ko se je rov, v katerega je čarovnik izginil, podrl in Jezal se je komaj izognil padajočemu kamenju. Jezno je obstal pri rovu in ocenjeval, kako hitro lahko odkoplje kamenje, ko je zaslišal obupan klic Franja.
+
+Pritekel je nazaj, z mislimi še vedno pri čarovniku, ki mu je ušel, ko je opazil Franja, kako čepi pri deklici. Ta je negibno ležala na tleh, zemlja okrog nje je bila razpokana. Tudi sam je pokleknil zraven nje, jo prijel za roko in začutil, da v njej ni več življenja. Jezal in Franjo sta se spogledala, oba je hkrati prevevala jeza in nemoč.Pi
