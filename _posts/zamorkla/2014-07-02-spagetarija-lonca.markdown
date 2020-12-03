@@ -20,6 +20,8 @@ Ob pričetku sem razložil pravila, ki so jih vse skupine zelo hitro razumele. �
 
 Po kratkem odmoru za sok in prigrizek smo delavnico ponovili z manjšim presenečenjem. Ekipe sem pomešal tako, da v novih ekipah nista bila nobena dva člana stare ekipe skupaj. Opaznih je bilo nekaj sprememb. V mešanih skupinah so vsi bolj zavzeto sodelovali, študenti pa so v vsako skupino prinesli tudi več tekmovalnosti. Izkušnje iz prve gradnje so pripomogle k temu, da so bili vsi stolpi drugega kroga višji, a ne nujno stabilnejši. 
 
+![2014-07-02-spagetarija-lonca.png](/assets/ilustracije/zamorkla/2014-07-02-spagetarija-lonca.png)
+
 #### Kaj smo se preko zabavne gradnje naučili?
 Razmišljati kot znanstvenik! V nedavnem istoimenskem članku profesor Planinšič iz Fakultete za matematiko in fiziko ugotavlja, da prav te, otroško enostavne veščine primanjkuje pri pouku naravoslovnih predmetov. Namesto da bi se učenci sami prikopali do naravnih danosti preko postavljanja in preizkušanja idej, so jim dejstva samo podana. Razumevanja, ki bi jih moralo spremljati, pa ni. Učenje je neprimerljivo boljše, če učenci izkusijo svoje okolje. Vzemimo, na primer, majhnega otroka, ki vidi nekaj novega. Sprašuje se, kaj je to. Otrok izhaja iz znanega, zato najprej postavi hipotezo: »Izgleda kot čokolada, je torej tudi podobnega okusa?« Hipotezo otrok nato preizkusi, mi pa vidimo jezno mamico, saj njen otrok okuša blato na vrtu.
 

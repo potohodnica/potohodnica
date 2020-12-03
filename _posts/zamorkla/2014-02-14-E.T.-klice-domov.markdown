@@ -7,13 +7,16 @@ categories: zamorkla
 #### En, dva, tri – Yoda kje si?
 Ljudje smo družbena bitja, zato ni neobičajno, da se ob pogledu na zvezdnato nebo vprašamo: »Ali smo sami?« Na vprašanje so tako ali drugače poskušali odgovoriti že številni. Kot bomo videli, so nam z izjemnim razvojem astronomije postali bolj jasni pogoji za razvoj napredne civilizacije. Omenili bomo tudi verjetnost za njihov obstoj in možnosti sporazumevanja.
 
-
 Pri razmišljanju o izvenzemeljskem življenju je potrebno narediti nekaj predpostavk. Najbolje je, če se omejimo na misleče Nezemljane, saj z bakterijam podobnimi bitji težko razpravljamo o pomenu življenja. Privzamemo lahko, da se lahko življenje razvije zgolj na planetih, podobnih naši Zemlji. Planeti, ki so preveč oddaljeni od svoje zvezde, so premrzli, medtem ko so planeti blizu zvezd izjemno vroči in zato neugodni za razvoj življenja. Za Zemljo pravimo, da je v Zlatolaskinem območju, saj je to, kot kaša najmanjšega medveda v zgodbi, ravno prav topla. Teleskopi so v zadnjem desetletju okrog oddaljenih zvezd odkrili kar nekaj planetov v tem območju.
+
+![2014-02-14-E.T.-klice-domov-1.png](/assets/ilustracije/zamorkla/2014-02-14-E.T.-klice-domov-1.png)
 
 #### Je 8 potnik blizu nas?
 Zgornje in še nekaj drugih pogojev je astronom Frank Drake združil v Drakovo enačbo, po kateri se ocenjuje verjetnost naprednih civilizacij v naši galaksiji.
 
 $$N = R_{*} \cdot f_{p} \cdot n_{e} \cdot f_{l} \cdot f_{i} \cdot f_{c} \cdot L$$
+
+![2014-02-14-E.T.-klice-domov-2.png](/assets/ilustracije/zamorkla/2014-02-14-E.T.-klice-domov-2.png)
 
 Ocene za zgornje faktorje so zelo različne. Prve tri lahko še kar dobro določimo, medtem ko sta zadnja dva bolj ali manj ugibanji. Ocene, ki so jih postavili astronomi, se gibljejo med nekaj tisoč in nekaj milijoni civilizacij v naši galaksiji.
 
