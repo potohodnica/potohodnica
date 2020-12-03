@@ -6,6 +6,8 @@ layout: page
 
 Zgodba o američanki Chris, ki je nedavno diplomirala in je za poletne počitnice prišla na hrvaško obalo. Toda tam jo čakajo več kot je pričakovala ...
 
+[10. poglavje - Kaj je s tem otokom?]({% post_url jesenskaPrebujanja/2020-02-01-jp10-kaj-je-s-tem-otokom %}) <br/>
+[9. poglavje - Cona udobja]({% post_url jesenskaPrebujanja/2020-01-15-jp9-cona-udobja %}) <br/>
 [8. poglavje - Opozorilo]({% post_url jesenskaPrebujanja/2020-01-05-jp8-opozorilo %}) <br/>
 [7. poglavje - Tomi]({% post_url jesenskaPrebujanja/2020-01-05-jp7-tomi %}) <br/>
 [6. poglavje - Človeški faktor]({% post_url jesenskaPrebujanja/2019-12-16-jp6-cloveski-faktor %}) <br/>

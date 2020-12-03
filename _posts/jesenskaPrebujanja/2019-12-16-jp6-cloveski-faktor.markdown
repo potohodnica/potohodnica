@@ -16,6 +16,8 @@ Iz omotice jo je zdramil močnejši piš vetra iz obale. Prepoznala ga je. To je
 
 Pogledala je na ekranček in si ogledala fotografije. Šele zdaj jo je prešinilo, kaj počne. Če bi jo kdo videl … ne, to so bile preveč neprijetne misli. Tako je bila zatopljena, da ni slišala kako se je žaganje nehalo. Tudi korakov ni ujela. Opazila je šele noge, ki so se pojavile pred njo. Pogledala je gor, kjer je stal njen fotomodel. Gledal je njo in tudi njegove slike na fotoaparatu. Na obrazu se mu je videla zmedenost. Chris se je nerodno nasmehnila. Začutila je željo, da bi jo tla pojedla in bi izginila v globočine Zemlje.
 
+![2019-12-16-jp6-cloveski-faktor.png](/assets/ilustracije/jesenskaPrebujanja/2019-12-16-jp6-cloveski-faktor.png)
+
 “Zdravo,” je rekel moški. “Jaz sem Tomi … če te slučajno zanima,” je dodal z zbadljivim glasom.
 
 

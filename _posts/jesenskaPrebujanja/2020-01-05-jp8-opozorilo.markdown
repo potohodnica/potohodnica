@@ -42,4 +42,6 @@ Chris se je začela umikati.
 
 Beatriz ne bo nikoli verjela, kaj se mi je danes dogodilo, si je mislila Chris, ko se je bližala domu. Tam jo je čakalo še eno presenečenje. Pred vrati so bili poleg običajnih čevljev še svetlo rdeči sandali s črnimi pentljami. Chris je vstopila. V dnevni sobi ni bilo nikogar. Na mizi so bili le trije napol spiti kozarci vina in nekaj oblek odvrženih čez kavč. Tipično je Beatriz marljivo pospravila razmetano perilo. Nenavadno, vendar se Chris s tem ni pretirano ukvarjala. Bila je preveč utrujena. Privoščila si je dolg tuš in šla spat.
 
+![2020-01-05-jp8-opozorilo.png](/assets/ilustracije/jesenskaPrebujanja/2020-01-05-jp8-opozorilo.png)
+
 Obetal se je vroč dan. Chris se je zbudila še preden je sonce posvetilo v njeno sobo. Skočila je s postelje, tako polna energije je bila. Skozi okno je videla, da se Lars in Beatriz že vračata z jutranjega plavanja. Spraševala se je, če so kje skrite kamere. Vedno je izgledalo, kot da hodita po modni pisti. Tako idealna se zdita, da ni več okusno. Že kar malo nenaravno, je pomislila. Stopila je proti ogledalu, slekla pižamo in se zagledala v svojo golo podobo. Zagrabila je ritnici in jih rahlo dvignila z rokami. Nato je k bokom povlekla nekaj maščobe iz trebuha in vdihnila. “To … to se od danes naprej popravi!” je rekla odločno svojemu odboju.

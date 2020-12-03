@@ -12,6 +12,8 @@ Zazrla se je skozi okno. Komaj je verjela, kako spokojna je bila plaža. Pravo n
 
 Beatriz se je približala plaži in se vzdignila iz vode. Dolgi lasje so objeli zagorele prsi. Kaplje so z lasnih konic kapljale po njenem povsem razgaljenem telesu. Za Chris je bilo to preveč. Močno je zardela in se hipoma obrnila stran od okna. Doma je že bikini veljal za neprimernega, zato je bilo letošnje potovanje zanjo izziv. Evropske ženske so se na plaži rade sončile zgoraj brez. 
 
+![2019-11-18-jp2-jutro-po-nevihti.png](/assets/ilustracije/jesenskaPrebujanja/2019-11-18-jp2-jutro-po-nevihti.png)
+
 Zdaj pa si je neprimerno dolgo ogledovala golo žensko - zelo lepo golo žensko - je švignilo po njeni glavi, preden je uspela misel odgnati. Sesedla se je na kavč. Ko je Beatriz čez kakšno minuto vstopila v sobo, je bila že odeta v lahko haljo.
 
 “Že pokonci?” je rekla in se prijazno nasmehnila.
