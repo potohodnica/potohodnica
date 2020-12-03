@@ -13,13 +13,7 @@ Pri razmišljanju o izvenzemeljskem življenju je potrebno narediti nekaj predpo
 #### Je 8 potnik blizu nas?
 Zgornje in še nekaj drugih pogojev je astronom Frank Drake združil v Drakovo enačbo, po kateri se ocenjuje verjetnost naprednih civilizacij v naši galaksiji.
 
-
-
-
-
-
-
-
+$$N = R_{*} \cdot f_{p} \cdot n_{e} \cdot f_{l} \cdot f_{i} \cdot f_{c} \cdot L$$
 
 Ocene za zgornje faktorje so zelo različne. Prve tri lahko še kar dobro določimo, medtem ko sta zadnja dva bolj ali manj ugibanji. Ocene, ki so jih postavili astronomi, se gibljejo med nekaj tisoč in nekaj milijoni civilizacij v naši galaksiji.
 

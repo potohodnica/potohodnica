@@ -2,7 +2,9 @@
 layout: page
 ---
 [//]: <>
-### Princi apokalipse
-[Materino znamenje]({% post_url kratkeZgodbe/2019-11-17-materino-znamenje %}) <br/>
-[Prvi zmenek]({% post_url kratkeZgodbe/2019-11-18-prvi-zmenek %}) <br/>
-[Rjuha]({% post_url kratkeZgodbe/2019-11-17-rjuha %}) <br/>
+### Ostalo
+[Slovaška 2018, 5. del]({% post_url ostalo/2018-06-09-Slovaška-2018-5 %}) <br/>
+[Slovaška 2018, 4. del]({% post_url ostalo/2018-06-03-Slovaška-2018-4 %}) <br/>
+[Slovaška 2018, 3. del]({% post_url ostalo/2018-05-27-Slovaška-2018-3 %}) <br/>
+[Slovaška 2018, 2. del]({% post_url ostalo/2018-05-20-Slovaška-2018-2 %}) <br/>
+[Slovaška 2018, 1. del]({% post_url ostalo/2018-05-13-Slovaška-2018-1 %}) <br/>
