@@ -5,8 +5,8 @@
 @import "minima";
 
 $text-color:            #111111 !default;
-$link-visited-color:    #2a7ae2 !default;
-$link-base-color:       darken($link-visited-color , 30%) !default;
+$link-base-color:       #2a8fe9 !default;
+$link-visited-color:    darken($link-base-color , 30%) !default;
 $link-hover-color:      $text-color !default;
 
 .site-title::before {

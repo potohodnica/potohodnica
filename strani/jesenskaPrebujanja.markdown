@@ -4,7 +4,7 @@ layout: page
 [//]: <>
 ### Jesenska prebujanja
 
-Zgodba o američanki Chris, ki je nedavno diplomirala in je za poletne počitnice prišla na hrvaško obalo. Toda tam jo čakajo več kot je pričakovala ...
+Zgodba o američanki Chris, ki je nedavno diplomirala in je za poletne počitnice prišla na hrvaško obalo. Toda tam jo čaka več kot je pričakovala ...
 
 [10. poglavje - Kaj je s tem otokom?]({% post_url jesenskaPrebujanja/2020-02-01-jp10-kaj-je-s-tem-otokom %}) <br/>
 [9. poglavje - Cona udobja]({% post_url jesenskaPrebujanja/2020-01-15-jp9-cona-udobja %}) <br/>
