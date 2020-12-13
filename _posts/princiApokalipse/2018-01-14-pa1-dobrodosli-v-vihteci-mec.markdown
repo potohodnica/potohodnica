@@ -17,6 +17,8 @@ S tleskom prstov je Jezal nakazal, da si želi postrežbe ter se zleknil v udobe
 
 “Oh seveda,” odvrne točajka. “Že cel teden je prava norišnica, kuhamo in pripravljamo vse za prihod delegatov,” nadaljuje. Pogovor se je nadaljeval, pri čemer Jezal vsake toliko navrgel kakšen kompliment ali nasmeh točajki Argoli.
 
+![2018-01-14-pa1-dobrodosli-v-vihteci-mec.png](/assets/ilustracije/princiApokalipse/2018-01-14-pa1-dobrodosli-v-vihteci-mec.png)
+
 Vendar pri pogovoru nista bila sama. Vse odkar je Jezal omenil delegacijo, je polovnjak v kotu našpičil ušesa in poleg branja debele, v usnje zavite knjige, na kateri se je lesketal naslov “Zgodovina in razvoj preučevanja demonov, zlodejev in drugih nezaželencev,” prisluškoval pogovoru. Franjo, kot je bilo ime polovnjaku, je v Vihteči meč prišel samo nekaj ur pred Jezalom, prav tako z namenom, da se dobi z delegacijo, oziroma bolj natančno s svojim čarovniškim mentorjem Haronom. Njegov vstop je bil manj teatralen. Manjšega od enega metra in zavitega v temno meniško haljo niso opazili, dokler se ni skoraj postavil na pot Argoli, da je bil lahko postrežen. To je bilo za Franja eno prvih popotovanj in v njem so se mešali občutki navdušenja, strahu in vzhičenosti, vendar je vse to izginilo potlačil, kadar se je zakopal za kakšno od svojih debelih knjig. Le-te so sestavljale dobršen del njegove prtljage.
 
 Jezalu se je medtem zdelo, da mu gre z Argolo dobro. Brez nepričakovanih motenj se je nadejal, da bo besedo o neverjetnem ljubimcu, ženskarju in eksotičnem plemiču Jezalu prinesel tudi v te preproste, kmečke konce. 
