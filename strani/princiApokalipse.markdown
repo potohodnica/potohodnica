@@ -6,6 +6,7 @@ layout: page
 
 Zgodbo ustvarjamo Nina, Živa in Jan med igranjem družabne igre Dungeons and Dragons.
 
+[26. poglavje - Hipija]({% post_url princiApokalipse/2020-12-20-pa26-hipija %}) <br/>
 [25. poglavje - O Leucisu]({% post_url princiApokalipse/2018-10-21-pa25-o-leucisu %}) <br/>
 [24. poglavje - Meje Jezalove potrpezljivosti]({% post_url princiApokalipse/2018-10-14-pa24-meje-jezalove-potrpezljivosti %}) <br/>
 [23. poglavje - Tujec]({% post_url princiApokalipse/2018-10-13-pa23-tujec %}) <br/>
