@@ -14,6 +14,8 @@ Maegla je zmedeno pogledala v smer majhnega, v temno zavitega Franja, ki se je k
 
 Franjo se je za trenutek zamislil. ʺTo se sliši kot zombiji, najbrž pod nadzorom nekoga ali nečesa.ʺ Celotno omizje se je presenečeno ozrlo proti Franju, ta pa je nadaljeval: ʺVeste, večina ljudi misli, da zombiji, oziroma oživljeni mrtveci, kot jih danes kličejo strokovnjaki nekromantije, nimajo nekega razuma, vendar je to zmotno. No že sam izraz je zmoten, namesto nekromanta raje rotilec duhov mrtvih, kot se uveljavlja ...ʺ
 
+![2018-01-21-pa2-graščak-kopjaste-pečine.png](/assets/ilustracije/princiApokalipse/2018-01-21-pa2-graščak-kopjaste-pečine.png)
+
 Preden je Franjo lahko nadaljeval, je Argola besno udarila po pultu. ʺOreioth! To mora biti njegovo delo. Zanj govorijo, da zna prebuditi mrtve. Vedno sem mislila, da so to samo govorice, ampak morda pa je res.ʺ
 
 ʺAh, osnovna nekromantija res ni pretirano kompleksen urok,ʺ pripomni Franjo. ʺEdino trupla je rahlo nerodno dobiti. Kje pa se da najti tega Oreiotha?ʺ
