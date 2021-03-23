@@ -17,7 +17,7 @@ a = df.iloc[:,0].values + 153
 b = df.iloc[:,1].values 
 plt.figure(figsize=(15,5))
 plt.plot(a, b, c='red')
-c = argrelextrema(b, np.less, order=600)
+c = argrelextrema(b, np.less, order=500)
 
 print(b)
 plt.scatter(a[c],b[c], c='blue')
