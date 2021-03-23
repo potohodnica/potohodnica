@@ -2,8 +2,12 @@ import numpy as np
 import pandas as pd 
 import matplotlib.pyplot as plt
 from scipy.signal import argrelextrema
+import os
 
-df = pd.read_csv("hd19.dat", delimiter="\s+") 
+__location__ = os.path.realpath(
+    os.path.join(os.getcwd(), os.path.dirname(__file__)))
+# f = open(os.path.join(__location__, 'bundled-resource.jpg'))
+df = pd.read_csv(os.path.join(__location__, 'hd19.dat'), delimiter="\s+") 
 colspecs = [(1, 5), (6, 10), (11, 24), (25, 31), (31, 36)]
 #df2 = pd.read_fwf("abs_crte.txt",header=None, colspecs=colspecs,) 
 
@@ -13,7 +17,7 @@ a = df.iloc[:,0].values + 153
 b = df.iloc[:,1].values 
 plt.figure(figsize=(15,5))
 plt.plot(a, b, c='red')
-c = argrelextrema(b, np.less, order=20)
+c = argrelextrema(b, np.less, order=600)
 
 print(b)
 plt.scatter(a[c],b[c], c='blue')
