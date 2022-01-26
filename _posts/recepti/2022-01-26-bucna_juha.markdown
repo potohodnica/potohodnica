@@ -17,7 +17,7 @@ categories: recepti
   * 1 pest bučnih semen
   * 2 lovorjeva lista 
   * ščep mlete kumine, 
-  * žlica rdeče mlete paprike)
+  * žlica rdeče mlete paprike
   * sol, poper po okusu
 
 ## koraki
