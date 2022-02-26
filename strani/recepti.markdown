@@ -4,7 +4,7 @@ layout: page
 [//]: <>
 ### Recepti
 
-### Kruh
+#### Kruh
 [Domače hot dog štručke]({% post_url recepti/2022-02-10-hot-dog-strucke %}) <br/>
 [Domači kruh]({% post_url recepti/2022-02-10-domaci-kruh %}) <br/>
 
