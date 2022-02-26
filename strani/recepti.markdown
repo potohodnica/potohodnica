@@ -16,3 +16,6 @@ layout: page
 
 #### Testenine
 [Tagliatelle al ragu]({% post_url  recepti/2022-02-10-tagliatelle-al-ragu %}) <br/>
+
+#### Enolončnice
+[Red Lentil Curry]({% post_url  recepti/2022-02-26-red-lentil-curry %}) <br/>
