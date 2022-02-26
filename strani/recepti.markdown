@@ -9,7 +9,7 @@ layout: page
 [Domači kruh]({% post_url recepti/2022-02-10-domaci-kruh %}) <br/>
 
 #### Pomake
-[Sladka gorčična omaka]({% post_url recepti/2022-01-28-sl-gor-omaka.markdown %}) <br/>
+[Sladka gorčična omaka]({% post_url recepti/2022-01-28-sl-gor-omaka %}) <br/>
 
 #### Juhe
 [Bučna juha]({% post_url recepti/2022-01-26-bucna-juha %}) <br/>
