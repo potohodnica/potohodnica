@@ -2,6 +2,9 @@
 layout: page
 ---
 [//]: <>
+
+[Policaj beži pred plazom]({% post_url kratkeZgodbe/2019-06-20-policaj-bezi-pred-plazom %}) <br/>
+
 ### Recepti
 
 ### Kruh
