@@ -22,3 +22,6 @@ layout: page
 [Red Lentil Curry]({% post_url  recepti/2022-02-26-red-lentil-curry %}) <br/>
 [Spiced Chickpea Stew With Coconut and Turmeric]({% post_url  recepti/2022-03-10-chickpea-stew %}) <br/>
 
+#### Priloge
+[Cauliflower Purée with Thyme]({% post_url  recepti/2022-03-10-cauliflower-puree %}) <br/>
+
