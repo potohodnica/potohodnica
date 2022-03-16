@@ -17,7 +17,6 @@ layout: page
 ### Objave po kategorijah
 [Kratke zgodbe]({% link strani/kratkeZgodbe.markdown %}) <span style="color:#2a8fe9">|</span>
 [Princi apokalipse]({% link strani/princiApokalipse.markdown %}) <span style="color:#2a8fe9">|</span>
-[Jesenska prebujanja]({% link strani/jesenskaPrebujanja.markdown %}) <span style="color:#2a8fe9">|</span>
 [Zamorkla]({% link strani/zamorkla.markdown %}) <span style="color:#2a8fe9">|</span>
 [Ostalo]({% link strani/ostalo.markdown %})
 
