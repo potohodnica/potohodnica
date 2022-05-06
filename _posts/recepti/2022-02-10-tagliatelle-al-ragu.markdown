@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Tagliatell al ragu"
+title:  "Tagliatelle al ragu"
 date:   2022-02-10
 categories: recepti
 ---
