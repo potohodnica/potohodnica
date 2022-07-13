@@ -25,3 +25,6 @@ layout: page
 #### Priloge
 [Cauliflower Purée with Thyme]({% post_url  recepti/2022-03-10-cauliflower-puree %}) <br/>
 
+#### Solate
+[Vinegar Based Coleslaw]({% post_url  recepti/2022-07-13-coleslaw %}) <br/>
+
